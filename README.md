@@ -9,7 +9,7 @@
 
 <p align="center">
   <a href=https://shantyletsky.straw.page>𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a>⠀⠀ 
-  <a               href=https://pronouns.cc/@sea_shanty>prnspage
+  <a               href=https://pronouns.cc/@sea_shanty>𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 𝑷𝒂𝒈𝒆
     
 </p>
 
