@@ -24,7 +24,7 @@
   ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 </p>
 <p align="center">
-  Oomfs: @twottimey, @carcrashxoxo, @TheRealVivian, @ACE0FHEART5
+  ᴏᴏᴍꜰꜱ: @ᴛᴡᴏᴛᴛɪᴍᴇʏ, @ᴄᴀʀᴄʀᴀꜱʜxᴏxᴏ, @ᴛʜᴇʀᴇᴀʟᴠɪᴠɪᴀɴ, @ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5
 </p>
 
 <img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
