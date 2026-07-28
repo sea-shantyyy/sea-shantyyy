@@ -13,16 +13,7 @@
 <p align="center">
   w2i⠀⠀c+h hvy enc⠀⠀ships int
 </p>
-<p align="center">
-  ⎝ always trying new styles
-</p>
-<p align="center">
-  lmk if it's similar 2 yours! ⎠
-</p>
 
-<p align="center">
-  ────────୨ৎ────────
-</p>
 
 <p align="center">
   ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
