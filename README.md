@@ -23,7 +23,7 @@
 <p align="center">
   ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 </p>
-<img width="900" height="160" src="https://64.media.tumblr.com/441163a783611ed58d5d995e3cfc441e/512618083ac70f39-23/s1280x1920/dce2057f1fe935822f358b2e26217a4ea21696cf.pnj>
+<img width="100" height="500" src="https://64.media.tumblr.com/441163a783611ed58d5d995e3cfc441e/512618083ac70f39-23/s1280x1920/dce2057f1fe935822f358b2e26217a4ea21696cf.pnj>
 <p align="center">
   ᴏᴏᴍꜰꜱ: @ᴛᴡᴏᴛᴛɪᴍᴇʏ, @ᴄᴀʀᴄʀᴀꜱʜxᴏxᴏ, @ᴛʜᴇʀᴇᴀʟᴠɪᴠɪᴀɴ, @ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5
 </p>
