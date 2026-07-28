@@ -18,13 +18,11 @@
 </p>
 <p align="center">
   𝐴𝑠𝑝𝑖𝑟𝑖𝑛𝑔 𝑆ℎ𝑒𝑑𝑙𝑒𝑡𝑠𝑘𝑦/𝑇𝑒𝑙𝑎𝑚𝑜𝑛 𝑜𝑓 𝑃𝑇
-</p>
-
+</p> 
 <p align="center">
   ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 </p>
 <p align="center">
   ᴏᴏᴍꜰꜱ: @ᴛᴡᴏᴛᴛɪᴍᴇʏ, @ᴄᴀʀᴄʀᴀꜱʜxᴏxᴏ, @ᴛʜᴇʀᴇᴀʟᴠɪᴠɪᴀɴ, @ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5
 </p>
-
 <img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
