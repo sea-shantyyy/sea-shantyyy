@@ -1,16 +1,23 @@
-## Hi there 👋
 
-<!--
-**sea-shantyyy/sea-shantyyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
+<img width="2397" height="1530" alt="image" src=https://64.media.tumblr.com/15be266960c6445b8d5ed5281010a04f/aaff1be603231613-5c/s2048x3072/0c5d15cb0525c645a273836ef69fbad109b43ca0.pnj />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<p align="center">
+  ⊹₊˚‧︵‿︵‿₊⊱·✶·⊰₊‿︵‿︵‧˚₊⊹
+</p>
+
+<p align="center">
+  <a href=https://shantyletsky.straw.page>strawpage</a>⠀⠀ 
+  <a               href=https://pronouns.cc/@sea_shanty>prnspage
+    
+</p>
+
+<p align="center">
+  w2i⠀⠀c+h!⠀⠀ships int
+</p>
+
+<p align="center">
+  ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
+</p>
