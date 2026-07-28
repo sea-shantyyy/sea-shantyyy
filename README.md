@@ -7,7 +7,8 @@
 </p>
 
 <p align="center">
-  <a href=https://shantyletsky.straw.page>strawpage</a>⠀⠀ <a href=https://pronouns.cc/@sea_shanty< /a>
+  <a href=https://shantyletsky.straw.page>strawpage</a>⠀⠀ <a
+                                                            href=https://pronouns.cc/@sea_shanty< /a>
 </p>
 
 <p align="center">
