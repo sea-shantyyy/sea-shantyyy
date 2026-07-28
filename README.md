@@ -8,8 +8,8 @@
 </p>
 
 <p align="center">
-  <a href=https://shantyletsky.straw.page>𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a>⠀⠀        
-  <a               href=https://pronouns.cc/@sea_shanty>𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 𝑷𝒂𝒈𝒆
+    <a href=https://shantyletsky.straw.page>𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a>⠀ ⠀        
+   <a               href=https://pronouns.cc/@sea_shanty>𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔 𝑷𝒂𝒈𝒆
     
 </p>
 
@@ -17,7 +17,7 @@
   w2i⠀⠀c+h!⠀⠀ships int
 </p>
 <p align="center">
-  ⍺᥉ƥίɽίȵɠ ᥉ɦⱸɗȴⱸȶ᥉ƙƴ ơʆ ƥȶ
+  𝐴𝑠𝑝𝑖𝑟𝑖𝑛𝑔 𝑆ℎ𝑒𝑑𝑙𝑒𝑡𝑠𝑘𝑦/𝑇𝑒𝑙𝑎𝑚𝑜𝑛 𝑜𝑓 𝑃𝑇
 </p>
 
 <p align="center">
