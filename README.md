@@ -26,3 +26,10 @@
   ᴏᴏᴍꜰꜱ: @ᴛᴡᴏᴛᴛɪᴍᴇʏ, @ᴄᴀʀᴄʀᴀꜱʜxᴏxᴏ, @ᴛʜᴇʀᴇᴀʟᴠɪᴠɪᴀɴ, @ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5
 </p>
 <img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
+
+<br>
+<br>
+<img width="106" height="57" alt="6602" src="https://64.media.tumblr.com/c1fd7105df912660371294d423b3223f/be6c6342abfbb414-e5/s250x400/e01e039f99d58a4836a1c5ba76d565a4867b5ace.pnj" />
+<img width="106" height="57" alt="6603" src="https://github.com/user-attachments/assets/0cf74763-350d-46ea-904f-7fee8b4fb56b" />
+<img width="106" height="57" alt="6604" src="https://github.com/user-attachments/assets/a2807646-dd45-4175-9fde-5b45f424bc1b" />
+<img width="106" height="57" alt="6605" src="https://github.com/user-attachments/assets/55918bc0-d5bc-41fc-9077-db72c1b17cc0" />
