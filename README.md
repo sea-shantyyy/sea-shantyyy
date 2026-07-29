@@ -1,6 +1,6 @@
 <img width="900" height="160" src="https://64.media.tumblr.com/42bc60e0035a7725db979eb4d003ba5e/5b5768b53aad21c8-04/s1280x1920/8ca309653d9a3cdf86761c80ea2d94e66888baa8.pnj">
 <img width="2397" height="1530" alt="image" src=https://64.media.tumblr.com/15be266960c6445b8d5ed5281010a04f/aaff1be603231613-5c/s2048x3072/0c5d15cb0525c645a273836ef69fbad109b43ca0.pnj />
-<img width="500" height="200" alt="image" src=https://64.media.tumblr.com/82f441b9a16908d5642bcb1703afae91/0050622629c9c07b-39/s250x400/50efc582f94e4c0e1e429867f96c66a9d00db0c2.gifv />
+<img width="500" height="50" alt="image" src=https://64.media.tumblr.com/82f441b9a16908d5642bcb1703afae91/0050622629c9c07b-39/s250x400/50efc582f94e4c0e1e429867f96c66a9d00db0c2.gifv />
 
 <p align="center">
   ⊹₊˚‧︵‿︵‿₊⊱·✶·⊰₊‿︵‿︵‧˚₊⊹
