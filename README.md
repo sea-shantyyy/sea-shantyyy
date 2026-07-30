@@ -5,7 +5,7 @@
 </p>
 <p align="center">
     <a href=https://shantyletsky.straw.page>𝑆ƬƦƛƜƤƛƓЄ</a>⠀ ⠀        
-   <a               href=https://pronouns.cc/@sea_shanty>ƤƦƠƝƠƲƝƧ.ƇƇ 𝑷𝒂𝒈𝒆
+   <a               href=https://pronouns.cc/@sea_shanty>ƤƦƠƝƠƲƝƧ.ƇƇ 
   
 </p>
 <p align="center">
