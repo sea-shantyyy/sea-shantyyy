@@ -7,7 +7,7 @@
     <a href=https://shantyletsky.straw.page>𝑆ƬƦƛƜƤƛƓЄ</a>⠀ ⠀        
    <a               href=https://pronouns.cc/@sea_shanty>ƤƦƠƝƠƲƝƧ.ƇƇ 
    <a
-href=href=https://sea-shanty.atabook.org>ᗩƬᗩ ᙖOOK
+href=href=https://sea-shanty.atabook.org>ᗩƬᗩ ᙖOOK </a>
   
 </p>
 <p align="center">
