@@ -5,3 +5,6 @@
 		<a href=https://pronouns.cc/@sea_shanty>|| PRONOUNS.CC ||</a>
 		<a href=https://sea-shanty.atabook.org>|| ATA BOOK ||</a>
 	</p>
+	<p align="center">
+		W2I ~ c+h ~ any ships
+	</p>
