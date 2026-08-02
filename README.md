@@ -9,13 +9,13 @@
 		⊰═══════════════════════════════════⊱
 	</p>
 	<p align="center">
-		w2i ~ c+h ~ any ships
+		𝚠𝟸𝚒 𝚌+𝚑 𝚜𝚑𝚒𝚙𝚜 𝚒𝚗𝚝
 	</p>
 	<p align="center">
-		Shedletsky/Telamon of PT - Thank you @pt-of-awesomeness and @pt-nominations!
+		ᏕӇЄƊԼЄƬƧҠᎩ/ƬЄԼƛMƠƝ ƠƑ ƤƬ - ᴛʜᴀɴᴋ ʏᴏᴜ @ᴘᴛ-ᴏꜰ-ᴀᴡᴇꜱᴏᴍᴇɴᴇꜱꜱ ᴀɴᴅ @ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ!
 	</p>
 	<p align="center">
-		Shedletsky/Telamon's Biggest Fan - Thank you @fans-town!
+		ᏕӇЄƊԼЄƬƧҠᎩ/ƬЄԼƛMƠƝ'Ꮥ ƁƖƓƓЄƧƬ ƑƛƝ - ᴛʜᴀɴᴋ ʏᴏᴜ @ꜰᴀɴꜱ-ᴛᴏᴡɴ !
 	</p>
 		<p align="center">
 		⊰═══════════════════════════════════⊱
