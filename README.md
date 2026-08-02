@@ -9,8 +9,8 @@
 		w2i ~ c+h ~ any ships
 	</p>
 	<p align="center">
-		Shedletsky/Telamon of PT - Thank you pt-of-awesomeness and pt-nominations!
+		Shedletsky/Telamon of PT - Thank you @pt-of-awesomeness and @pt-nominations!
 	</p>
 	<p align="center">
-		Shedletsky/Telamon's Biggest Fan - Thank you fans-town!
+		Shedletsky/Telamon's Biggest Fan - Thank you @fans-town!
 	</p>
