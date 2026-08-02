@@ -6,7 +6,7 @@
 		<a href=https://sea-shanty.atabook.org>|| ATA BOOK ||</a>
 	</p>
 	<p align="center">
-		⊰═════════════════════════⊱
+		⊰═══════════════════════════════════⊱
 	</p>
 	<p align="center">
 		w2i ~ c+h ~ any ships
@@ -17,3 +17,10 @@
 	<p align="center">
 		Shedletsky/Telamon's Biggest Fan - Thank you @fans-town!
 	</p>
+		<p align="center">
+		⊰═══════════════════════════════════⊱
+	</p>
+	<p align="center">
+	Go follow my friends!!: @ace0fheart5, @twottimey, therealvivian, carcrashxoxo
+	</p>
+<img width="800" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
