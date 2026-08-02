@@ -6,7 +6,7 @@
 		<a href=https://sea-shanty.atabook.org>|| ATA BOOK ||</a>
 	</p>
 	<p align="center">
-		⊰════════════════════⊱
+		⊰═════════════════════════⊱
 	</p>
 	<p align="center">
 		w2i ~ c+h ~ any ships
