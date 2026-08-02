@@ -6,5 +6,11 @@
 		<a href=https://sea-shanty.atabook.org>|| ATA BOOK ||</a>
 	</p>
 	<p align="center">
-		W2I ~ c+h ~ any ships
+		w2i ~ c+h ~ any ships
+	</p>
+	<p align="center">
+		Shedletsky/Telamon of PT - Thank you pt-of-awesomeness and pt-nominations!
+	</p>
+	<p align="center">
+		Shedletsky/Telamon's Biggest Fan - Thank you fans-town!
 	</p>
