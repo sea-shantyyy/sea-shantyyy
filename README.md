@@ -6,7 +6,7 @@
 		<a href=https://sea-shanty.atabook.org>|| ＡＴＡ Ｂｏｏｋ||</a>
 	</p>
 	<p align="center">
-		⊰═══════════════════════════════════⊱
+		⊰══════════════════════════⊱
 	</p>
 	<p align="center">
 		𝚠𝟸𝚒 𝚌+𝚑 𝚜𝚑𝚒𝚙𝚜 𝚒𝚗𝚝
@@ -18,7 +18,7 @@
 		ᏕӇЄƊԼЄƬƧҠᎩ/ƬЄԼƛMƠƝ'Ꮥ ƁƖƓƓЄƧƬ ƑƛƝ - ᴛʜᴀɴᴋ ʏᴏᴜ @ꜰᴀɴꜱ-ᴛᴏᴡɴ !
 	</p>
 		<p align="center">
-		⊰═══════════════════════════════════⊱
+		⊰══════════════════════════⊱
 	</p>
 	<p align="center">
 	Go follow my friends!!: @ace0fheart5, @twottimey, therealvivian, carcrashxoxo
