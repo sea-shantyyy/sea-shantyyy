@@ -12,7 +12,7 @@
   𝚆𝟸𝙸⠀⠀𝚌+𝚑⠀⠀𝚜𝚑𝚒𝚙𝚜 𝚒𝚗𝚝
 </p>
 <p align="center">
-  ⳽ⲏⲉ𝖽ⳑⲉτ⳽қⲩ/τⲉⳑⲇϻⲟⲛ ⲟf ⳏτ - Thank you  https://github.com/fans-town !!
+  ⳽ⲏⲉ𝖽ⳑⲉτ⳽қⲩ/τⲉⳑⲇϻⲟⲛ ⲟf ⳏτ - Thank you  https://github.com/pt-of-awesomeness !!
 </p>
 <p align="center">
   ⳽ⲏⲉ𝖽ⳑⲉτ⳽қⲩ/τⲉⳑⲇϻⲟⲛ'⳽ ⲃⳕⳋⳋⲉ⳽τ fⲇⲛ - Thank you https://github.com/fans-town !!
