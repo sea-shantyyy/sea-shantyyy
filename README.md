@@ -5,8 +5,8 @@
 	</p>
 	<p align="center">
 		<a href=https://shantyletsky.straw.page> || Ｓｔｒａｗｐａｇｅ ||</a>
-		<a href=https://pronouns.cc/@sea_shanty>|| Ｐｒｏｎｏｕｎｓ.ｃｃ ||</a>
 		<a href=https://sea-shanty.atabook.org>|| ＡＴＡ Ｂｏｏｋ||</a>
+		<a href=https://pronouns.cc/@sea_shanty>|| Ｐｒｏｎｏｕｎｓ.ｃｃ ||</a>
 	</p>
 	<p align="center">
 		⊰══════════════════════════⊱
