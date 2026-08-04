@@ -1,10 +1,10 @@
 <img width="1000" height="160" src="https://64.media.tumblr.com/42bc60e0035a7725db979eb4d003ba5e/5b5768b53aad21c8-04/s1280x1920/8ca309653d9a3cdf86761c80ea2d94e66888baa8.pnj">
 		<p align="center">
-		"𝔜ᴏᤙ ɡᴏꞇꞇɑ ᥉ɛɛ ꞇҺɛ ɑɾꞇı᥉ꞇɾƴ ıꞃ... 𝑡𝑒𝑎𝑟𝑛𝑖𝑛𝑔 𝑡ℎ𝑒 𝑝𝑙𝑎𝑐𝑒 𝑎𝑝𝑎𝑟𝑡 𝑤𝑖𝑡ℎ 𝑚𝑒 𝑏𝑎𝑏𝑦."
+		"𝑌𝑜𝑢 𝑔𝑜𝑡𝑡𝑎 𝑠𝑒𝑒 𝑡ℎ𝑒 𝑎𝑟𝑡𝑖𝑠𝑡𝑟𝑦 𝑖𝑛... 𝒕𝒆𝒂𝒓𝒊𝒏𝒈 𝒕𝒉𝒆 𝒑𝒍𝒂𝒄𝒆 𝒂𝒑𝒂𝒓𝒕 𝒘𝒊𝒕𝒉 𝒎𝒆, 𝒃𝒂𝒃𝒚."
 	</p>
 <img width="2397" height="1530" alt="image" src=https://64.media.tumblr.com/15be266960c6445b8d5ed5281010a04f/aaff1be603231613-5c/s2048x3072/0c5d15cb0525c645a273836ef69fbad109b43ca0.pnj />
 	<p align="center">
-		ѕιɢɴ мy ѕтrαwpαɢε αɴd αтα вooĸ!
+		ꜱɪɢɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴀᴛᴀ ʙᴏᴏᴋ!
 	</p>
 	<p align="center">
 		<a href=https://shantyletsky.straw.page> || 𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄 ||</a>
@@ -15,18 +15,18 @@
 		⊰══════════════════════════⊱
 	</p>
 	<p align="center">
-		⊹ ࣪ ˖𝚠𝟸𝚒 𝚌+𝚑 𝚜𝚑𝚒𝚙𝚜 𝚒𝚗𝚝⊹ ࣪ ˖
+		ᴡ2ɪ ᴄ+ʜ ᴀɴʏ ꜱʜɪᴘꜱ
 	</p>
 	<p align="center">
-		𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍 𝐎𝐅 𝐏𝐓- ᴛʜᴀɴᴋ ʏᴏᴜ @ᴘᴛ-ᴏꜰ-ᴀᴡᴇꜱᴏᴍᴇɴᴇꜱꜱ, @ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ, @ᴘᴏɴʏᴛᴏᴡɴ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ, ᴀɴᴅ @ᴘᴏɴʏᴄʜɪᴇᴠᴇɴᴛꜱ !
+		𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍 𝐎𝐅 𝐏𝐓 ᴛʜᴀɴᴋ ʏᴏᴜ @ᴘᴛ-ᴏꜰ-ᴀᴡᴇꜱᴏᴍᴇɴᴇꜱꜱ, @ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ, @ᴘᴏɴʏᴛᴏᴡɴ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ, ᴀɴᴅ @ᴘᴏɴʏᴄʜɪᴇᴠᴇɴᴛꜱ !
 	</p>
 	<p align="center">
-		𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍'𝐒 𝐁𝐈𝐆𝐆𝐄𝐒𝐓 𝐅𝐀𝐍 - ᴛʜᴀɴᴋ ʏᴏᴜ @ꜰᴀɴꜱ-ᴛᴏᴡɴ !
+		𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍'𝐒 𝐁𝐈𝐆𝐆𝐄𝐒𝐓 𝐅𝐀𝐍  ᴛʜᴀɴᴋ ʏᴏᴜ @ꜰᴀɴꜱ-ᴛᴏᴡɴ !
 	</p>
 		<p align="center">
 		⊰══════════════════════════⊱
 	</p>
 	<p align="center">
-	Go follow my lovely oomfs!: @ace0fheart5, @twottimey, therealvivian, carcrashxoxo
+	𝐺𝑜 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑦 𝑙𝑜𝑣𝑒𝑙𝑦 𝑜𝑜𝑚𝑓𝑠!:@ace0fheart5, @twottimey, therealvivian, carcrashxoxo
 	</p>
 <img width="1000" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
