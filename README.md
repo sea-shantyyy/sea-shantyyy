@@ -7,9 +7,9 @@
 		𝑆𝑖𝑔𝑛 𝑚𝑦 𝑆𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒 𝑎𝑛𝑑 𝐴𝑇𝐴!
 	</p>
 	<p align="center">
-		<a href=https://shantyletsky.straw.page> || Ｓｔｒａｗｐａｇｅ ||</a>
-		<a href=https://sea-shanty.atabook.org>|| ＡＴＡ Ｂｏｏｋ||</a>
-		<a href=https://pronouns.cc/@sea_shanty> Ｐｒｏｎｏｕｎｓ.ｃｃ </a>
+		<a href=https://shantyletsky.straw.page> || 𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄 ||</a>
+		<a href=https://sea-shanty.atabook.org>|| 𝐀𝐓𝐀 𝐁𝐎𝐎𝐊||</a>
+		<a href=https://pronouns.cc/@sea_shanty> 𝐏𝐑𝐎𝐍𝐎𝐔𝐍𝐒.𝐂𝐂 </a>
 	</p>
 	<p align="center">
 		⊰══════════════════════════⊱
