@@ -27,6 +27,6 @@
 		⊰══════════════════════════⊱
 	</p>
 	<p align="center">
-	𝐺𝑜 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑦 𝑙𝑜𝑣𝑒𝑙𝑦 𝑜𝑜𝑚𝑓𝑠!:@ace0fheart5, @twottimey, therealvivian, carcrashxoxo
+	𝐺𝑜 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑦 𝑙𝑜𝑣𝑒𝑙𝑦 𝑜𝑜𝑚𝑓𝑠!: @ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5, @ᴛᴡᴏᴛᴛɪᴍᴇʏ, ᴛʜᴇʀᴇᴀʟᴠɪᴠɪᴀɴ, ᴄᴀʀᴄʀᴀꜱʜxᴏxᴏ
 	</p>
 <img width="1000" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
