@@ -4,10 +4,10 @@
 	</p>
 <img align="center" width="2397" height="1530" alt="image" src=https://64.media.tumblr.com/15be266960c6445b8d5ed5281010a04f/aaff1be603231613-5c/s2048x3072/0c5d15cb0525c645a273836ef69fbad109b43ca0.pnj />
 <p align="center">
-<img width="95" height="18" alt="image" src=https://hits.sh/github.com/sea-shantyyy.svg?label=BLAMED%20JOHN&color=df9217&labelColor=f2d15b />
+<img width="110" height="20" alt="image" src=https://hits.sh/github.com/sea-shantyyy.svg?label=BLAMED%20JOHN&color=df9217&labelColor=f2d15b />
 </p>
 	<p align="center">
-		ꜱɪɢɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴀᴛᴀ ʙᴏᴏᴋ!
+		⤹ꜱɪɢɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴀᴛᴀ ʙᴏᴏᴋ!⤸
 	</p>
 	<p align="center">
 		<a href=https://shantyletsky.straw.page> ┆𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄┆</a>
