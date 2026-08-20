@@ -2,7 +2,8 @@
 		<p align="center">
 		"𝑌𝑜𝑢 𝑔𝑜𝑡𝑡𝑎 𝑠𝑒𝑒 𝑡ℎ𝑒 𝑎𝑟𝑡𝑖𝑠𝑡𝑟𝑦 𝑖𝑛... 𝒕𝒆𝒂𝒓𝒊𝒏𝒈 𝒕𝒉𝒆 𝒑𝒍𝒂𝒄𝒆 𝒂𝒑𝒂𝒓𝒕 𝒘𝒊𝒕𝒉 𝒎𝒆, 𝒃𝒂𝒃𝒚."
 	</p>
-<img width="2397" height="1530" alt="image" src=https://64.media.tumblr.com/15be266960c6445b8d5ed5281010a04f/aaff1be603231613-5c/s2048x3072/0c5d15cb0525c645a273836ef69fbad109b43ca0.pnj />
+<img align="center" width="2397" height="1530" alt="image" src=https://64.media.tumblr.com/15be266960c6445b8d5ed5281010a04f/aaff1be603231613-5c/s2048x3072/0c5d15cb0525c645a273836ef69fbad109b43ca0.pnj />
+<img width="50" height="15" alt="image" src=https://hits.sh/github.com/sea-shantyyy.svg?label=PWNED&color=df9217&labelColor=f2d15b />
 	<p align="center">
 		ꜱɪɢɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴀᴛᴀ ʙᴏᴏᴋ!
 	</p>
