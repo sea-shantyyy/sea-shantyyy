@@ -10,15 +10,18 @@
 		ꜱɪɢɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴀᴛᴀ ʙᴏᴏᴋ!
 	</p>
 	<p align="center">
-		<a href=https://shantyletsky.straw.page> ||𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄||</a>
-		<a href=https://sea-shanty.atabook.org>||𝐀𝐓𝐀 𝐁𝐎𝐎𝐊||</a>
-		<a href=https://pronouns.cc/@sea_shanty> ||𝐏𝐑𝐎𝐍𝐎𝐔𝐍𝐒.𝐂𝐂|| </a>
+		<a href=https://shantyletsky.straw.page> ┆𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄┆</a>
+		<a href=https://sea-shanty.atabook.org>┆𝐀𝐓𝐀 𝐁𝐎𝐎𝐊┆</a>
+		<a href=https://pronouns.cc/@sea_shanty> ┆𝐏𝐑𝐎𝐍𝐎𝐔𝐍𝐒.𝐂𝐂┆ </a>
 	</p>
 	<p align="center">
 		⊰══════════════════════════⊱
 	</p>
 	<p align="center">
 		𝑃𝑜𝑠𝑠𝑖𝑏𝑙𝑦 𝑜𝑓𝑓-𝑡𝑎𝑏, 𝐼𝑊𝐶𝑈𝐹, 𝑐+ℎ ┆ 𝑈𝑠𝑢𝑎𝑙𝑙𝑦 𝑛𝑒𝑎𝑟 𝑡ℎ𝑒 𝑏𝑎𝑘𝑒𝑟𝑦 𝑖𝑛 𝑠𝑎𝑓𝑒 𝑠𝑒𝑟𝑣𝑒𝑟 #1
+	</p>
+		<p align="center">
+		⊰══════════════════════════⊱
 	</p>
 	<p align="center">
 		𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍 𝐎𝐅 𝐏𝐓 ᴛʜᴀɴᴋ ʏᴏᴜ @ᴘᴛ-ᴏꜰ-ᴀᴡᴇꜱᴏᴍᴇɴᴇꜱꜱ, @ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ, @ᴘᴏɴʏᴛᴏᴡɴ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ, ᴀɴᴅ @ᴘᴏɴʏᴄʜɪᴇᴠᴇɴᴛꜱ
