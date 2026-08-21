@@ -6,7 +6,7 @@
 <img width="110" height="20" alt="image" src=https://hits.sh/github.com/sea-shantyyy.svg?label=BLAMED%20JOHN&color=df9217&labelColor=f2d15b />
 </p>
 	<p align="center">
-		𝙿𝚘𝚜𝚜𝚒𝚋𝚕𝚢 𝚘𝚏𝚏-𝚝𝚊𝚋 ┆ 𝙸𝚆𝙲𝚄𝙵 ┆ 𝙲+𝙷 ┆ 𝚄𝚜𝚞𝚊𝚕𝚕𝚢 𝚗𝚎𝚊𝚛 𝚝𝚑𝚎 𝚋𝚊𝚔𝚎𝚛𝚢 𝚘𝚗 𝚜𝚊𝚏𝚎 𝚜𝚎𝚛𝚟𝚎𝚛 #𝟷
+		𝙿𝚘𝚜𝚜𝚒𝚋𝚕𝚢 𝚘𝚏𝚏-𝚝𝚊𝚋 ┆ 𝙸𝚆𝙲𝚄𝙵 ┆ 𝙲+𝙷
 	</p>
 		<p align="center">
 		⊰══════════════════════════⊱
