@@ -12,6 +12,9 @@
 	</p>
 	<img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
 	<p align="center">
+	<img align="center" width="100" height="23" alt="image" src=https://64.media.tumblr.com/86cc3e0e72ca4b04aedaf7124778e3f5/87988561a803aba2-e5/s1280x1920/d8df08d1bcda623d51f443ebcdbc8a9a9b9f44ec.pnj />
+	</p>
+	<p align="center">
 		𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍 𝐎𝐅 𝐏𝐓 ᴛʜᴀɴᴋ ʏᴏᴜ @ᴘᴛ-ᴏꜰ-ᴀᴡᴇꜱᴏᴍᴇɴᴇꜱꜱ, @ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ, @ᴄʜᴀʀᴀᴄᴛᴇʀꜱᴏꜰᴘᴛ, @ᴘᴏɴʏᴛᴏᴡɴ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ, ᴀɴᴅ @ᴘᴏɴʏᴄʜɪᴇᴠᴇɴᴛꜱ
 	</p>
 	<p align="center">
