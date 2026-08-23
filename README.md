@@ -11,7 +11,7 @@
 		<a href=https://pronouns.cc/@sea_shanty> ┆𝐏𝐑𝐎𝐍𝐎𝐔𝐍𝐒.𝐂𝐂┆ </a>
 	</p>
 	<p align="center">
-<img width="180" height="180" alt="image" src=https://64.media.tumblr.com/6e5652aa95e95fc4f4e3ca2551955101/6f1e5bdf78d09eae-fd/s75x75_c1/51ed7d1b77dd71749a31f3c6691d1e24f817555d.gifv />
+<img width="550" height="500" alt="image" src=https://64.media.tumblr.com/bcc83cec2c82f132eb3e42cf3d7bbebb/0c13717b74df1d5f-a4/s640x960/c9f995c0ee35fdfa35682b97697e7f741e636540.pnj />
 </p>
 	<p align="center">
 		⊰══════════════════════════⊱
