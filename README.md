@@ -10,9 +10,7 @@
 		<a href=https://sea-shanty.atabook.org>┆𝐀𝐓𝐀 𝐁𝐎𝐎𝐊┆</a>
 		<a href=https://pronouns.cc/@sea_shanty> ┆𝐏𝐑𝐎𝐍𝐎𝐔𝐍𝐒.𝐂𝐂┆ </a>
 	</p>
-	<p align="center">
-		⊰══════════════════════════⊱
-	</p>
+	<img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
 	<p align="center">
 		𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍 𝐎𝐅 𝐏𝐓 ᴛʜᴀɴᴋ ʏᴏᴜ @ᴘᴛ-ᴏꜰ-ᴀᴡᴇꜱᴏᴍᴇɴᴇꜱꜱ, @ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ, @ᴄʜᴀʀᴀᴄᴛᴇʀꜱᴏꜰᴘᴛ, @ᴘᴏɴʏᴛᴏᴡɴ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ, ᴀɴᴅ @ᴘᴏɴʏᴄʜɪᴇᴠᴇɴᴛꜱ
 	</p>
@@ -22,9 +20,7 @@
 		<p align="center">
 		#𝟏 𝐋𝐔𝐂𝐊𝐘𝐀𝐃𝐌𝐈𝐍/𝐂𝐇𝐈𝐂𝐊𝐄𝐍𝐑𝐎𝐔𝐋𝐄𝐓𝐓𝐄 𝐒𝐇𝐈𝐏𝐏𝐄𝐑 𝑤𝑖𝑡ℎ 𝑚𝑦 𝑑𝑒𝑎𝑟𝑒𝑠𝑡 𝑑𝑖𝑣𝑖𝑛𝑖𝑡𝑦  ᴛʜᴀɴᴋ ʏᴏᴜ @ꜱʜɪᴘ-ᴛᴏᴡɴ
 	</p>
-		<p align="center">
-		⊰══════════════════════════⊱
-	</p>
+			<img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
 	<p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff9e4a&bar_color_cover=true">
