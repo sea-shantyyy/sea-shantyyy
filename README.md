@@ -9,6 +9,8 @@
 		<a href=https://shantyletsky.straw.page> ┆𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄┆</a>
 		<a href=https://sea-shanty.atabook.org>┆𝐀𝐓𝐀 𝐁𝐎𝐎𝐊┆</a>
 		<a href=https://pronouns.cc/@sea_shanty> ┆𝐏𝐑𝐎𝐍𝐎𝐔𝐍𝐒.𝐂𝐂┆ </a>
+		hanty.atabook.org>┆𝐀𝐓𝐀 𝐁𝐎𝐎𝐊┆</a>
+		<a href=https://open.spotify.com/user/31aw5storlsfd4lb6yqhebe4nkli?si=74m7-ewRT36p0O_dJEgmGw&utm_source=copy-link ┆𝐒𝐏𝐎𝐓𝐈𝐅𝐘┆ </a>
 	</p>
 	<img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
 	<p align="center">
