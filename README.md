@@ -1,4 +1,4 @@
-<img width="1000" height="160" src="https://64.media.tumblr.com/092c24709d0ee7a58e5fe801ebc9f2b0/2b416705065db00c-45/s2048x3072/eb9cb1382efabd0abe78f550546c1f1fc944ab0f.pnj">
+<img width="1000" height="110" src="https://64.media.tumblr.com/70bc58a7c69f63761c599aab482fa72d/50d1e3b0da6bd344-5b/s2048x3072/3bc574248a32e67295d15023a7345f4f5671b0d6.pnj">
 		<p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=30&letterSpacing=3px&duration=2000&pause=1500&color=E6B259&center=true&multiline=true&width=950&height=80&lines=Remember+that+time+I+totally+pwned+you+in+SFOTH%3F" alt="Typing SVG" /></a>
 <img align="center" width="1570" height="1530" alt="image" src=https://64.media.tumblr.com/9fe40fe766d8a225284fed2247fb0ad5/0c13717b74df1d5f-91/s1280x1920/e13c9941c86565b1be72636380425f4143c1ace6.pnj />
