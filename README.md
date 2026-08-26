@@ -1,9 +1,9 @@
-<img width="1000" height="110" src="https://64.media.tumblr.com/70bc58a7c69f63761c599aab482fa72d/50d1e3b0da6bd344-5b/s2048x3072/3bc574248a32e67295d15023a7345f4f5671b0d6.pnj">
+<img width="1000" height="160" src="https://64.media.tumblr.com/42bc60e0035a7725db979eb4d003ba5e/5b5768b53aad21c8-04/s1280x1920/8ca309653d9a3cdf86761c80ea2d94e66888baa8.pnj">
 		<p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=30&letterSpacing=3px&duration=2000&pause=1500&color=E6B259&center=true&multiline=true&width=950&height=80&lines=Remember+that+time+I+totally+pwned+you+in+SFOTH%3F" alt="Typing SVG" /></a>
 <img align="center" width="1570" height="1530" alt="image" src=https://64.media.tumblr.com/9fe40fe766d8a225284fed2247fb0ad5/0c13717b74df1d5f-91/s1280x1920/e13c9941c86565b1be72636380425f4143c1ace6.pnj />
 <p align="center">
-	<img width="1000" height="160" src="https://64.media.tumblr.com/42bc60e0035a7725db979eb4d003ba5e/5b5768b53aad21c8-04/s1280x1920/8ca309653d9a3cdf86761c80ea2d94e66888baa8.pnj">
+	<img width="1000" height="120" src="https://64.media.tumblr.com/70bc58a7c69f63761c599aab482fa72d/50d1e3b0da6bd344-5b/s2048x3072/3bc574248a32e67295d15023a7345f4f5671b0d6.pnj">
 <img width="110" height="20" alt="image" src=https://hits.sh/github.com/sea-shantyyy.svg?label=BLAMED%20JOHN&color=df9217&labelColor=f2d15b />
 </p>
 	<p align="center">
