@@ -13,11 +13,11 @@
 		<a href=https://open.spotify.com/user/31aw5storlsfd4lb6yqhebe4nkli?si=74m7-ewRT36p0O_dJEgmGw&utm_source=copy-link>  ┆𝐒𝐏𝐎𝐓𝐈𝐅𝐘┆ </a>
 </p>
 
-		|☀️:Please interact!
-		|🌤: Interact with caution
-		|⚔️: Do not interact
-		|🪺: Off-tab, whisper to interact
-		|🪹: AFK, late response
+	|☀️:Please interact!
+	|🌤: Interact with caution
+	|⚔️: Do not interact
+	|🪺: Off-tab, whisper to interact
+	|🪹: AFK, late response
 		
 <img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
 	<p align="center">
