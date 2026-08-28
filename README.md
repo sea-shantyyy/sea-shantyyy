@@ -33,6 +33,11 @@
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff9e4a&bar_color_cover=true">
   </a>
+	
+	Hobbies/Interests: Violin, Photography, Drawing, Writing, Ice skating, etc.
+	Fandoms I'm in: Forsaken, Blocktales, Just Roll With It, Most Roblox games, etc.
+	My Kins: Shedletsky/Telamon, 1x1x1x1, Slasher (Forsaken), Kyoko (Blocktales)
+		
 </p>
 	<p align="center">
 	𝐺𝑜 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑦 𝑙𝑜𝑣𝑒𝑙𝑦 𝑜𝑜𝑚𝑓𝑠!: @ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5, @ᴛᴡᴏᴛᴛɪᴍᴇʏ, ᴛʜᴇʀᴇᴀʟᴠɪᴠɪᴀɴ, ᴄᴀʀᴄʀᴀꜱʜxᴏxᴏ
