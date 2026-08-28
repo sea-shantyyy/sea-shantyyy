@@ -37,14 +37,17 @@
 	</p>
 			<img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
 	<p align="center">
+
+	
+	HOBBIES/INTERESTS: Violin, photography, drawing, writing, ice skating
+	FANDOMS: Forsaken, Blocktales, most roblox games, Undertale, Just Roll With IT
+	KINS: Shedletsky/Telamon, Slasher (Forsaken version), Kyoko (Blocktales), Player (Blocktales)
+
+
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff9e4a&bar_color_cover=true">
   </a>
 </p>
-
-	HOBBIES/INTERESTS: Violin, photography, drawing, writing, ice skating
-	FANDOMS: Forsaken, Blocktales, most roblox games, Undertale, Just Roll With IT
-	KINS: Shedletsky/Telamon, Slasher (Forsaken version), Kyoko (Blocktales), Player (Blocktales)
 
 <p align="center">
 	𝐺𝑜 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑦 𝑙𝑜𝑣𝑒𝑙𝑦 𝑜𝑜𝑚𝑓𝑠!: @ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5, @ᴛᴡᴏᴛᴛɪᴍᴇʏ, ᴛʜᴇʀᴇᴀʟᴠɪᴠɪᴀɴ, ᴄᴀʀᴄʀᴀꜱʜxᴏxᴏ
