@@ -34,13 +34,12 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff9e4a&bar_color_cover=true">
   </a>
 
-		☀️: Please interact!
+☀️: Please interact!
 🌤: Interact with caution 
 ⚔️: Do not interact
 ⏳️: Roleplaying
 🪺: Off-tab, whisper to interact
 🪹: AFK, late response
-
 
 </p>
 	<p align="center">
