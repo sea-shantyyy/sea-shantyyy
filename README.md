@@ -28,12 +28,16 @@
 	|   DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, problematic people, spawnists
 	|   INTERACT WITH CAUTION: People under 15 and people over 21, Shedletsky yumes
 	|   BEFORE YOU INTERACT: I have C-PTSD, so please be mindful of potential triggers like medical topics
-	| and mentions of surgeries and specifically 
-	|
-	|
+	| and mentions of surgeries and organs (specifically the digestive tract). I may respond oddly or 
+	| slowly if dissociated, please bear with me. Thank you!
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 
-
+    ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
+	|   SHEDLETSKY/TELAMON OF PONYTOWN: Thank you @pt-of-awesomeness, @pt-nominations, @charactersofpt,
+	| @ponytown-nominations, and @ponychievememts!
+	|   SHEDLETSKY/TELAMON'S BIGGEST FAN: Thank you @fans-town!
+	|   #1 LUCKYADMIN/CHICKENROULETTE SHIPPER (with my darling Divinity): Thank you @ship-town!
+    ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 
 <img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
 	<p align="center">
@@ -48,4 +52,4 @@
 <p align="center">
 	𝐺𝑜 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑦 𝑙𝑜𝑣𝑒𝑙𝑦 𝑜𝑜𝑚𝑓𝑠!: @ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5, @ᴛᴡᴏᴛᴛɪᴍᴇʏ, ᴛʜᴇʀᴇᴀʟᴠɪᴠɪᴀɴ, ᴄᴀʀᴄʀᴀꜱʜxᴏxᴏ
 	</p>
-<img width="1000" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tuta01.png">
+<img width="1000" height="30" src="https://neckdoll.zombie.jp/material/line/line-tuta/line-tdissociated, 
