@@ -24,6 +24,7 @@
 	|    KINS: Shedletsky/Telamon, Slasher (Forsaken version), Kyoko (Blocktales), Slimecicle (him and 
 	| all of his characters)
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
+	
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, problematic people, spawnists
 	|   INTERACT WITH CAUTION: People under 15 and people over 21, Shedletsky yumes
