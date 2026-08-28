@@ -41,7 +41,6 @@
 	<p align="center">
 
 	
-	  BASIC INFO ABOUT ME
 	⊰════════════════════⊱
 	|    Hio!! You can call me Shanty, Tela, or honestly whatever you want! I'm 18 and going to college 
 	| soon for medical work. I'm an INFP-T, Cancer, and ambivert.
