@@ -13,12 +13,14 @@
 		<a href=https://open.spotify.com/user/31aw5storlsfd4lb6yqhebe4nkli?si=74m7-ewRT36p0O_dJEgmGw&utm_source=copy-link>  ┆𝐒𝐏𝐎𝐓𝐈𝐅𝐘┆ </a>
 </p>
 
+    ⊰════════════════════⊱
 	|☀️:Please interact!
 	|🌤: Interact with caution
 	|⚔️: Do not interact
 	|🪺: Off-tab, whisper to interact
 	|🪹: AFK, late response
-		
+    ⊰════════════════════⊱
+	  
 <img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
 	<p align="center">
 	<img align="center" width="100" height="23" alt="image" src=https://64.media.tumblr.com/86cc3e0e72ca4b04aedaf7124778e3f5/87988561a803aba2-e5/s1280x1920/d8df08d1bcda623d51f443ebcdbc8a9a9b9f44ec.pnj />
@@ -39,14 +41,16 @@
 	<p align="center">
 
 	
-	| BASIC INFO ABOUT ME
-	|⊰═════════════════════⊱
-	|   Hio!! You can call me Shanty, Tela, or honestly whatever you want. I'm 18 and going to college soon
-	|for medical work. I'm an INFP-T, Cancer, and ambivert.
-	|   HOBBIES/INTERESTS: Violin, photography, drawing, writing, ice skating
-	|   FANDOMS: Forsaken, Blocktales, most roblox games, Undertale, Just Roll With IT
-	|   KINS: Shedletsky/Telamon, Slasher (Forsaken version), Kyoko (Blocktales), Player (Blocktales)
-
+	  BASIC INFO ABOUT ME
+	⊰════════════════════⊱
+	|    Hio!! You can call me Shanty, Tela, or honestly whatever you want! I'm 18 and going to college 
+	| soon for medical work. I'm an INFP-T, Cancer, and ambivert.
+	|    HOBBIES/INTERESTS: Violin, photography, drawing, writing, ice skating
+	|    FANDOMS: Forsaken, Blocktales, most roblox games, Undertale, Just Roll With It
+	|    KINS: Shedletsky/Telamon, Slasher (Forsaken version), Kyoko (Blocktales), Slimecicle (him and 
+	| all of his characters)
+    ⊰════════════════════⊱
+	
 <p align="center">			
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff9e4a&bar_color_cover=true">
