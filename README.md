@@ -39,9 +39,13 @@
 	<p align="center">
 
 	
-	|HOBBIES/INTERESTS: Violin, photography, drawing, writing, ice skating
-	|FANDOMS: Forsaken, Blocktales, most roblox games, Undertale, Just Roll With IT
-	|KINS: Shedletsky/Telamon, Slasher (Forsaken version), Kyoko (Blocktales), Player (Blocktales)
+	| BASIC INFO ABOUT ME
+	|⊰═════════════════════⊱
+	|   Hio!! You can call me Shanty, Tela, or honestly whatever you want. I'm 18 and going to college soon
+	|for medical work. I'm an INFP-T, Cancer, and ambivert.
+	|   HOBBIES/INTERESTS: Violin, photography, drawing, writing, ice skating
+	|   FANDOMS: Forsaken, Blocktales, most roblox games, Undertale, Just Roll With IT
+	|   KINS: Shedletsky/Telamon, Slasher (Forsaken version), Kyoko (Blocktales), Player (Blocktales)
 
 <p align="center">			
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&redirect=true">
