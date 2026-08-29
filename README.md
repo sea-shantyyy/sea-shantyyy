@@ -27,7 +27,7 @@
 	
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, problematic people, spawnists
-	|   INTERACT WITH CAUTION: People under 15 and people over 21, Shedletsky yumes
+	|   INTERACT WITH CAUTION: People under 15 and people over 21, shedletsky/telamon yumes
 	|   BEFORE YOU INTERACT: I have C-PTSD, so please be mindful of potential triggers like medical topics
 	| and mentions of surgeries and organs (specifically the digestive tract). I may respond oddly or 
 	| slowly if dissociated, please bear with me. Thank you!
