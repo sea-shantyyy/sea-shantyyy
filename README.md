@@ -7,9 +7,9 @@
 <img width="110" height="20" alt="image" src=https://hits.sh/github.com/sea-shantyyy.svg?label=BLAMED%20JOHN&color=df9217&labelColor=f2d15b />
 </p>
 <p align="center">
-		<a href=https://shantyletsky.straw.page> ┆𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄┆</a>
 		<a href=https://sea-shanty.atabook.org>┆𝐀𝐓𝐀 𝐁𝐎𝐎𝐊┆</a>
 		<a href=https://pronouns.cc/@sea_shanty> ┆𝐏𝐑𝐎𝐍𝐎𝐔𝐍𝐒.𝐂𝐂┆  </a>
+    	<a href=https://shantyletsky.straw.page> ┆𝐒𝐓𝐑𝐀𝐖𝐏𝐀𝐆𝐄┆</a>
 </p>
 	  
 <img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
@@ -47,6 +47,7 @@
 	| @ponytown-nominations, and @ponychievememts!
 	|   ⊱ SHEDLETSKY/TELAMON'S BIGGEST FAN: Thank you @fans-town!
 	|   ⊱ #1 LUCKYADMIN/CHICKENROULETTE SHIPPER (with my darling Divinity): Thank you @ship-town!
+	|   ⊱ PRETTIEST GITHUB & FRIENDLIEST PLAYER: I forgot the page, I'm working on finding it! <3
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 <break>
 	
