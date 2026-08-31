@@ -29,6 +29,7 @@
 	| active DNI.
 	|      ☀️: Feel free to interact! ┆ 🌤: IWC ┆ ⚔️: DNI ┆ 🪺: Off-tab, W2I ┆ 🪹: AFK, late resp.
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
+	
 	BEFORE YOU INTERACT༄.°
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   ⊱ DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, problematic people, spawnists
@@ -37,6 +38,7 @@
 	| topics and mentions of surgeries and organs. I may respond oddly or slowly if dissociated, please 
 	| bear with me. Thank you!
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
+	
 	TITLES AND AWARDS༄.°
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   ⊱ SHEDLETSKY/TELAMON OF PONYTOWN: Thank you @pt-of-awesomeness, @pt-nominations, @charactersofpt,
