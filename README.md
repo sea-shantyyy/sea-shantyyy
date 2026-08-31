@@ -6,12 +6,13 @@
 	<img width="1000" height="120" src="https://64.media.tumblr.com/70bc58a7c69f63761c599aab482fa72d/50d1e3b0da6bd344-5b/s2048x3072/3bc574248a32e67295d15023a7345f4f5671b0d6.pnj">
 <img width="110" height="20" alt="image" src=https://hits.sh/github.com/sea-shantyyy.svg?label=BLAMED%20JOHN&color=df9217&labelColor=f2d15b />
 </p>
+
 <a href="https://sea-shanty.atabook.org/">
-  <img src="https://64.media.tumblr.com/10a751242f163df70d089ec645de5a4e/67d073f547c23178-04/s640x960/42a415e0cb72d20dac5e1e6d9cb8d43a80dda991.pnj" width="100">
+  <img src="https://64.media.tumblr.com/10a751242f163df70d089ec645de5a4e/67d073f547c23178-04/s640x960/42a415e0cb72d20dac5e1e6d9cb8d43a80dda991.pnj" width="150" height="50">
 </a> <a href="https://pronouns.cc/@sea_shanty">
-  <img src="https://64.media.tumblr.com/9cc6b716a930aecae976e5b42a9a0b5e/67d073f547c23178-38/s640x960/4062c89daef7cf2a9b73931d0426868d4bd60c36.pnj" width="100">
+  <img src="https://64.media.tumblr.com/9cc6b716a930aecae976e5b42a9a0b5e/67d073f547c23178-38/s640x960/4062c89daef7cf2a9b73931d0426868d4bd60c36.pnj" width="150" height="50">
 </a> <a href="https://shantyletsky.straw.page">
-  <img src="https://64.media.tumblr.com/5dee9f6dc854cebb458261b2bf02121d/67d073f547c23178-36/s640x960/d0f94c419c28ad63f790481b272d40c3e041c2e3.pnj" width="100">
+  <img src="https://64.media.tumblr.com/5dee9f6dc854cebb458261b2bf02121d/67d073f547c23178-36/s640x960/d0f94c419c28ad63f790481b272d40c3e041c2e3.pnj" width="150" height="50">
 </a>
 	  
 <img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
