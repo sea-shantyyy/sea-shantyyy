@@ -17,7 +17,7 @@
 	<p align="center">
 
 	
-     PONYTOWN AND STATUS INFORMATION༄.°
+    ‧₊˚┊PONYTOWN AND STATUS INFORMATION༄.°
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|    ⊱ Please interact with caution unless I know you personally! You don't have to walk on eggshells
 	| when you're talking to me, just be considerate and act like a normal person. 
@@ -31,7 +31,7 @@
 	|      ☀️: Feel free to interact! ┆ 🌤: IWC ┆ ⚔️: DNI ┆ 🪺: Off-tab, W2I ┆ 🪹: AFK, late resp.
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	
-	BEFORE YOU INTERACT༄.°
+	‧₊˚┊BEFORE YOU INTERACT༄.°
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   ⊱ DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, problematic people, spawnists
 	|   ⊱ INTERACT WITH CAUTION: People under 15 and people over 21, shedletsky/telamon yumes
@@ -40,7 +40,7 @@
 	| bear with me. Thank you!
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	
-	TITLES AND AWARDS༄.°
+	‧₊˚┊TITLES AND AWARDS༄.°
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   ⊱ SHEDLETSKY/TELAMON OF PONYTOWN: Thank you @pt-of-awesomeness, @pt-nominations, @charactersofpt,
 	| @ponytown-nominations, and @ponychievememts!
@@ -48,7 +48,7 @@
 	|   ⊱ #1 LUCKYADMIN/CHICKENROULETTE SHIPPER (with my darling Divinity): Thank you @ship-town!
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 
-	SOCIALS༄.°
+	‧₊˚┊SOCIALS༄.°
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   ⊱ WIP
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
