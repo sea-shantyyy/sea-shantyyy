@@ -21,7 +21,8 @@
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|    ⊱ Please interact with caution unless I know you personally! You don't have to walk on eggshells
 	| when you're talking to me, just be considerate and act like a normal person. 
-	|     ⊱ Please ask to take inspo! I typically don't mind, but I don't want you to take inspiration
+	|    ⊱ Typically near the bakery on safe server #1 as Shedletsky!
+	|    ⊱ Please ask to take inspo! I typically don't mind, but I don't want you to take inspiration
 	| from a gifted pony without permission of the gifter. However you MAY NOT explicitly copy skins or 
 	| color pick.
 	|    ⊱ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally!
