@@ -21,7 +21,7 @@
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|    ☆ Please interact with caution unless I know you personally! You don't have to walk on eggshells
 	| when you're talking to me, just be considerate and act like a normal person. 
-	|    ☆ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally<3
+	|    ☆ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally!
 	|    ☆ Please don't cover me unless you're a friend or cuddling! Feel free to C+H unless I have an 
 	| active DNI.
 	|      ☀️: Feel free to interact! ┆ 🌤: IWC ┆ ⚔️: DNI ┆ 🪺: Off-tab, W2I ┆ 🪹: AFK, late resp.
