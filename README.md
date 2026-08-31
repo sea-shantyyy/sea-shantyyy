@@ -17,29 +17,29 @@
 	<p align="center">
 
 	
-     PONYTOWN/STATUS INFORMATION <3
+     PONYTOWN AND STATUS INFORMATION༄.°
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	|    ☆ Please interact with caution unless I know you personally! You don't have to walk on eggshells
+	|    ⊱ Please interact with caution unless I know you personally! You don't have to walk on eggshells
 	| when you're talking to me, just be considerate and act like a normal person. 
-	|    ☆ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally!
-	|    ☆ Please don't cover me unless you're a friend or cuddling! Feel free to C+H unless I have an 
+	|    ⊱ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally!
+	|    ⊱ Please don't cover me unless you're a friend or cuddling! Feel free to C+H unless I have an 
 	| active DNI.
 	|      ☀️: Feel free to interact! ┆ 🌤: IWC ┆ ⚔️: DNI ┆ 🪺: Off-tab, W2I ┆ 🪹: AFK, late resp.
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	DNI, IWC, BYI
+	BEFORE YOU INTERACT༄.°
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	|   DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, problematic people, spawnists
-	|   INTERACT WITH CAUTION: People under 15 and people over 21, shedletsky/telamon yumes
-	|   BEFORE YOU INTERACT: I have C-PTSD, so please be mindful of potential triggers like medical topics
-	| and mentions of surgeries and organs. I may respond oddly or slowly if dissociated, please bear 
-	| with me. Thank you!
+	|   ⊱ DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, problematic people, spawnists
+	|   ⊱ INTERACT WITH CAUTION: People under 15 and people over 21, shedletsky/telamon yumes
+	|   ⊱ PLEASE KEEP IN MIND: I have C-PTSD, so please be mindful of potential triggers like medical 
+	| topics and mentions of surgeries and organs. I may respond oddly or slowly if dissociated, please 
+	| bear with me. Thank you!
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	TITLES/AWARDS <3
+	TITLES AND AWARDS༄.°
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	|   SHEDLETSKY/TELAMON OF PONYTOWN: Thank you @pt-of-awesomeness, @pt-nominations, @charactersofpt,
+	|   ⊱ SHEDLETSKY/TELAMON OF PONYTOWN: Thank you @pt-of-awesomeness, @pt-nominations, @charactersofpt,
 	| @ponytown-nominations, and @ponychievememts!
-	|   SHEDLETSKY/TELAMON'S BIGGEST FAN: Thank you @fans-town!
-	|   #1 LUCKYADMIN/CHICKENROULETTE SHIPPER (with my darling Divinity): Thank you @ship-town!
+	|   ⊱ SHEDLETSKY/TELAMON'S BIGGEST FAN: Thank you @fans-town!
+	|   ⊱ #1 LUCKYADMIN/CHICKENROULETTE SHIPPER (with my darling Divinity): Thank you @ship-town!
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 
 <img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
