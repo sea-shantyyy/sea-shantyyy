@@ -24,7 +24,7 @@
 	|    ☆ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally<3
 	|    ☆ Please don't cover me unless you're a friend or cuddling! Feel free to C+H unless I have an 
 	| active DNI.
-	| ☀️: Feel free to interact! 🌤: Interact with caution ⚔️: Do not interact 🪺: Off-tab, W2I 🪹: AFK, late response
+	| ☀️: Feel free to interact! 🌤: IWC ⚔️: DNI 🪺: Off-tab, W2I 🪹: AFK, late resp.
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|    Hio!! You can call me Shanty, Tela, or honestly whatever you want! I'm 18 and going to college 
