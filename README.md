@@ -23,8 +23,7 @@
 	| when you're talking to me, just be considerate and act like a normal person. 
 	|    ⊱ Typically near the bakery on safe server #1 as Shedletsky!
 	|    ⊱ Please ask to take inspo! I typically don't mind, but I don't want you to take inspiration
-	| from a gifted pony without permission of the gifter. However you MAY NOT explicitly copy skins or 
-	| color pick.
+	| from a gifted pony without permission of the gifter. However you may NOT explicitly copy skins.
 	|    ⊱ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally!
 	|    ⊱ Please don't cover me unless you're a friend or cuddling! Feel free to C+H unless I have an 
 	| active DNI.
@@ -54,6 +53,7 @@
 	‧₊˚┊SOCIALS༄.°
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   ⊱ WIP
+	|    → WIP
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 
 <img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
