@@ -15,10 +15,10 @@
 	  
 <img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
 	<p align="center">
+
 	
-     
+     PONYTOWN/STATUS INFORMATION <3
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	|    PONYTOWN/STATUS INFORMATION <3
 	|    ☆ Please interact with caution unless I know you personally! You don't have to walk on eggshells
 	| when you're talking to me, just be considerate and act like a normal person. 
 	|    ☆ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally<3
@@ -26,14 +26,7 @@
 	| active DNI.
 	| ☀️: Feel free to interact! 🌤: IWC ⚔️: DNI 🪺: Off-tab, W2I 🪹: AFK, late resp.
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	|    Hio!! You can call me Shanty, Tela, or honestly whatever you want! I'm 18 and going to college 
-	| soon for medical work. I'm an INFP-T, Cancer, and ambivert.
-	|    HOBBIES/INTERESTS: Violin, photography, drawing, writing, ice skating
-	|    FANDOMS: Forsaken, Blocktales, most roblox games, Undertale, Just Roll With It
-	|    KINS: Shedletsky/Telamon, Slasher (Forsaken version), Kyoko (Blocktales), Slimecicle (him and 
-	| all of his characters)
-    ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
+	DNI, IWC, BYI
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, problematic people, spawnists
 	|   INTERACT WITH CAUTION: People under 15 and people over 21, shedletsky/telamon yumes
@@ -41,6 +34,7 @@
 	| and mentions of surgeries and organs. I may respond oddly or slowly if dissociated, please bear 
 	| with me. Thank you!
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
+	TITLES/AWARDS <3
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   SHEDLETSKY/TELAMON OF PONYTOWN: Thank you @pt-of-awesomeness, @pt-nominations, @charactersofpt,
 	| @ponytown-nominations, and @ponychievememts!
