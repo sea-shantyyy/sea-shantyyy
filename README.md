@@ -18,14 +18,14 @@
 	
     ‧₊˚┊PONYTOWN AND STATUS INFORMATION༄.°
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	|    ⊱ Please interact with caution unless I know you personally! You don't have to walk on eggshells
+	|   ⊱ Please interact with caution unless I know you personally! You don't have to walk on eggshells
 	| when you're talking to me, just be considerate and act like a normal person. 
-	|    ⊱ Typically near the bakery on safe server #1 as Shedletsky!
-    |    ⊱ If I don't know you well or if I'm feeling iffy, I may be semi-mute! It's nothing against you!
-	|    ⊱ Please ask to take inspo! I typically don't mind, but I don't want you to take inspiration
+	|   ⊱ Typically near the bakery on safe server #1 as Shedletsky!
+    |   ⊱ If I don't know you well or if I'm feeling iffy, I may be semi-mute! It's nothing against you!
+	|   ⊱ Please ask to take inspo! I typically don't mind, but I don't want you to take inspiration
 	| from a gifted pony without permission of the gifter. However you may NOT explicitly copy skins.
-	|    ⊱ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally!
-	|    ⊱ Please don't cover me unless you're a friend or cuddling! Feel free to C+H unless I have an 
+	|   ⊱ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally!
+	|   ⊱ Please don't cover me unless you're a friend or cuddling! Feel free to C+H unless I have an 
 	| active DNI.
 	|      ☀️: Feel free to interact! ┆ 🌤: IWC ┆ ⚔️: DNI ┆ 🪺: Off-tab, W2I ┆ 🪹: AFK, late resp.
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
@@ -53,16 +53,16 @@
 	
 	‧₊˚┊SOCIALS༄.°
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	| ⊱ Spotify
-	|   → https://open.spotify.com/user/31aw5storlsfd4lb6yqhebe4nkli?si=74m7-ewRT36p0O_dJEgmGw&utm_source=copy-link>
-	| ⊱ Pinterest
-	|   → https://pin.it/v65FzvwOi
-	| ⊱ Discord
-    |   → https://discord.com/users/1177425634448920599
-	| ⊱ Roblox
-	|   → WIP
-	| ⊱ Artfight
-	|   → WIP
+	|   ⊱ Spotify
+	|      → WIP
+	|   ⊱ Pinterest
+	|      → https://pin.it/v65FzvwOi
+	|   ⊱ Discord
+    |      → https://discord.com/users/1177425634448920599
+	|   ⊱ Roblox
+	|      → WIP
+	|   ⊱ Artfight
+	|      → WIP
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 
 <img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
