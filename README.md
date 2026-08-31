@@ -33,7 +33,7 @@
 	
 	‧₊˚┊BEFORE YOU INTERACT༄.°
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	|   ⊱ DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, problematic people, spawnists
+	|   ⊱ DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, proshippers, spawnists
 	|   ⊱ INTERACT WITH CAUTION: People under 15 and people over 21, shedletsky/telamon yumes
 	|   ⊱ PLEASE KEEP IN MIND: I have C-PTSD, so please be mindful of potential triggers like medical 
 	| topics and mentions of surgeries and organs. I may respond oddly or slowly if dissociated, please 
