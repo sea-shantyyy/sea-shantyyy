@@ -30,7 +30,6 @@
 	| active DNI.
 	|      ☀️: Feel free to interact! ┆ 🌤: IWC ┆ ⚔️: DNI ┆ 🪺: Off-tab, W2I ┆ 🪹: AFK, late resp.
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	
 <break>
 	
 	‧₊˚┊BEFORE YOU INTERACT༄.°
@@ -41,6 +40,7 @@
 	| topics and mentions of surgeries and organs. I may respond oddly or slowly if dissociated, please 
 	| bear with me. Thank you!
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
+<break>
 	
 	‧₊˚┊TITLES AND AWARDS༄.°
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
@@ -49,7 +49,8 @@
 	|   ⊱ SHEDLETSKY/TELAMON'S BIGGEST FAN: Thank you @fans-town!
 	|   ⊱ #1 LUCKYADMIN/CHICKENROULETTE SHIPPER (with my darling Divinity): Thank you @ship-town!
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-
+<break>
+	
 	‧₊˚┊SOCIALS༄.°
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   ⊱ WIP
