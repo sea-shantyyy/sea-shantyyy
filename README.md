@@ -24,7 +24,7 @@
 	|    ☆ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally!
 	|    ☆ Please don't cover me unless you're a friend or cuddling! Feel free to C+H unless I have an 
 	| active DNI.
-	|       ☀️: Feel free to interact! ┆ 🌤: IWC ┆ ⚔️: DNI ┆ 🪺: Off-tab, W2I ┆ 🪹: AFK, late resp.
+	|      ☀️: Feel free to interact! ┆ 🌤: IWC ┆ ⚔️: DNI ┆ 🪺: Off-tab, W2I ┆ 🪹: AFK, late resp.
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	DNI, IWC, BYI
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
