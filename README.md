@@ -58,7 +58,7 @@
 	‧₊˚┊SOCIALS༄.°
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   ⊱ Spotify
-	|      → https://open.spotify.com/user/31aw5storlsfd4lb6yqhebe4nkli?si=lEBsoP_yQQSt7lLTWwbZ2Q&utm_source=copy-link
+	|      → https://open.spotify.com/user/31aw5storlsfd4lb6yqhebe4nkli
 	|   ⊱ Pinterest
 	|      → https://pin.it/v65FzvwOi
 	|   ⊱ Discord
