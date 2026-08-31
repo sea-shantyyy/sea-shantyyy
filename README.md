@@ -19,7 +19,10 @@
      
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|    PONYTOWN/STATUS INFORMATION <3
-	|    
+	|    ☆Please interact with caution unless I know you personally! You don't have to walk on eggshells
+	| when you're talking to me, just be considerate and act like a normal person. 
+	|    ☆I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally<3
+	|    ☆
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|    Hio!! You can call me Shanty, Tela, or honestly whatever you want! I'm 18 and going to college 
@@ -29,7 +32,6 @@
 	|    KINS: Shedletsky/Telamon, Slasher (Forsaken version), Kyoko (Blocktales), Slimecicle (him and 
 	| all of his characters)
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, problematic people, spawnists
 	|   INTERACT WITH CAUTION: People under 15 and people over 21, shedletsky/telamon yumes
@@ -37,7 +39,6 @@
 	| and mentions of surgeries and organs. I may respond oddly or slowly if dissociated, please bear 
 	| with me. Thank you!
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   SHEDLETSKY/TELAMON OF PONYTOWN: Thank you @pt-of-awesomeness, @pt-nominations, @charactersofpt,
 	| @ponytown-nominations, and @ponychievememts!
