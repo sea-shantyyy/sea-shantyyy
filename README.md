@@ -31,6 +31,8 @@
 	|      ☀️: Feel free to interact! ┆ 🌤: IWC ┆ ⚔️: DNI ┆ 🪺: Off-tab, W2I ┆ 🪹: AFK, late resp.
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	
+<break>
+	
 	‧₊˚┊BEFORE YOU INTERACT༄.°
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 	|   ⊱ DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, proshippers, spawnists
