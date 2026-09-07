@@ -69,6 +69,8 @@
 	|      → https://artfight.net/~sea_shanty
 	|   ⊱ Magma
 	|      → https://magma.com/artist/sea_shanty
+	|   ⊱ Rentry
+	|      → https://rentry.co/thedivine-eyesofTELAMON [thank you cc!]
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 
 <img align="center" width="1570" height="15" alt="image" src=https://64.media.tumblr.com/f1738ec76275e348eaf920814601734a/c3272a4cb8f76e3e-07/s1280x1920/1e3c99368e1dfc4770e1398171915bf2dfcb98db.pnj />
