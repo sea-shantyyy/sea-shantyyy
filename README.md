@@ -1,4 +1,5 @@
 <img width="1000" height="140" src="https://files.catbox.moe/4vovq5.png">
+<img width="1000" height="70" src="https://files.catbox.moe/xv39sj.webp">
 		<p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cinzel&size=30&letterSpacing=3px&duration=2000&pause=1500&color=E6B259&center=true&multiline=true&width=950&height=80&lines=Remember+that+time+I+totally+pwned+you+in+SFOTH%3F" alt="Typing SVG" /></a>
 <img align="center" width="1570" height="1530" alt="image" src=https://64.media.tumblr.com/9fe40fe766d8a225284fed2247fb0ad5/0c13717b74df1d5f-91/s1280x1920/e13c9941c86565b1be72636380425f4143c1ace6.pnj />
