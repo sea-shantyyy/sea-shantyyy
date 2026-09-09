@@ -5,7 +5,7 @@
 <img align="center" width="500" height="500" alt="image" src=https://files.catbox.moe/3prvac.png />
 <p align="center">
 	<img width="1000" height="40" src="https://files.catbox.moe/ansunn.png">
-<img width="110" height="20" alt="image" src=https://hits.sh/github.com/ACE0FHEART5.svg?label=WEAKNESS%20GAINED&color=df9217&labelColor=f2d15b />
+<img width="110" height="20" alt="image" src=https://hits.sh/github.com/ACE0FHEART5.svg?label=WEAKNESS%20GAINED&color=E8B1B1&labelColor=F9E6E5 />
 </p>
 <p align="center">
 <a href="https://pronouns.cc/@Aviatiski/">
