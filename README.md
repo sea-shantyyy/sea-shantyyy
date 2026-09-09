@@ -9,7 +9,7 @@
 </p>
 <p align="center">
 <a href="https://sea-shanty.atabook.org/">
-  <img src="https://64.media.tumblr.com/10a751242f163df70d089ec645de5a4e/67d073f547c23178-04/s640x960/42a415e0cb72d20dac5e1e6d9cb8d43a80dda991.pnj" width="150" height="50">
+  <img src="https://files.catbox.moe/jox8yt.png" width="150" height="50">
 </a> <a href="https://pronouns.cc/@sea_shanty">
   <img src="https://64.media.tumblr.com/9cc6b716a930aecae976e5b42a9a0b5e/67d073f547c23178-38/s640x960/4062c89daef7cf2a9b73931d0426868d4bd60c36.pnj" width="150" height="50">
 </a> <a href="https://shantyletsky.straw.page">
