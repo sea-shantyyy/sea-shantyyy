@@ -23,55 +23,22 @@
 	
     ‧₊˚┊PONYTOWN AND STATUS INFORMATION༄.°
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	|   ⊱ Please interact with caution unless I know you personally! You don't have to walk on eggshells
-	| when you're talking to me, just be considerate and act like a normal person. 
-	|   ⊱ Typically near the bakery on safe server #1 as Shedletsky!
-    |   ⊱ If I don't know you well or if I'm feeling iffy, I may be semi-mute! It's nothing against you!
-	|   ⊱ Please ask to take inspo! I typically don't mind, but I don't want you to take inspiration
-	| from a gifted pony without permission of the gifter. However you may NOT explicitly copy skins.
-	|   ⊱ I may disconnect suddenly due to my internet, medical issues, etc. Don't take it personally!
-	|   ⊱ Please don't cover me unless you're a friend or cuddling! Feel free to C+H unless I have an 
-	| active DNI.
-	|      ☀️: Feel free to interact! ┆ 🌤: IWC ┆ ⚔️: DNI ┆ 🪺: Off-tab, W2I ┆ 🪹: AFK, late resp.
+	|   ⊱ 
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 <break>
 	
 	‧₊˚┊BEFORE YOU INTERACT༄.°
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	|   ⊱ DO NOT INTERACT: Homophobes, transphobes, ableists, MAGA, proshippers, spawnists
-	|   ⊱ INTERACT WITH CAUTION: People under 15 and people over 21, shedletsky/telamon yumes
-	|   ⊱ PLEASE KEEP IN MIND: I have C-PTSD, so please be mindful of potential triggers like medical 
-	| topics and mentions of surgeries and organs. I may respond oddly or slowly if dissociated, please 
-	| bear with me. Thank you!
-    ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-<break>
-	
-	‧₊˚┊TITLES AND AWARDS༄.°
-    ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	|   ⊱ SHEDLETSKY/TELAMON OF PONYTOWN: Thank you @pt-of-awesomeness, @pt-nominations, @charactersofpt,
-	| @ponytown-nominations, and @ponychievememts!
-	|   ⊱ SHEDLETSKY/TELAMON'S BIGGEST FAN: Thank you @fans-town!
-	|   ⊱ #1 LUCKYADMIN/CHICKENROULETTE SHIPPER (with my darling Divinity): Thank you @ship-town!
-	|   ⊱ PRETTIEST GITHUB & FRIENDLIEST PLAYER: I forgot the page, I'm working on finding it! <3
+	|   ⊱ DO NOT INTERACT: 
+	|   ⊱ INTERACT WITH CAUTION: 
+	|   ⊱ PLEASE KEEP IN MIND: 
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 <break>
 	
 	‧₊˚┊SOCIALS༄.°
 	⊰═══════════════════════════════════════════════════════════════════════════════════⊱
-	|   ⊱ Spotify
-	|      → https://open.spotify.com/user/31aw5storlsfd4lb6yqhebe4nkli
-	|   ⊱ Pinterest
-	|      → https://pin.it/v65FzvwOi
-	|   ⊱ Discord
-    |      → https://discord.com/users/1177425634448920599
-	|   ⊱ Roblox
-	|      → https://www.roblox.com/users/3164822128/profile
-	|   ⊱ Artfight
-	|      → https://artfight.net/~sea_shanty
-	|   ⊱ Magma
-	|      → https://magma.com/artist/sea_shanty
-	|   ⊱ Rentry
-	|      → https://rentry.co/thedivine-eyesofTELAMON [thank you cc!]
+	|   ⊱ 
+	|      → 
     ⊰═══════════════════════════════════════════════════════════════════════════════════⊱
 
 <img align="center" width="1570" height="15" alt="image" src=https://files.catbox.moe/83xp9m.jpg />
