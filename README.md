@@ -8,13 +8,11 @@
 <img width="110" height="20" alt="image" src=https://hits.sh/github.com/sea-shantyyy.svg?label=BLAMED%20JOHN&color=df9217&labelColor=f2d15b />
 </p>
 <p align="center">
-<a href="https://sea-shanty.atabook.org/">
+<a href="https://pronouns.cc/@Aviatiski/">
   <img src="https://files.catbox.moe/jox8yt.png" width="150" height="50">
-</a> <a href="https://pronouns.cc/@sea_shanty">
-  <img src="https://64.media.tumblr.com/9cc6b716a930aecae976e5b42a9a0b5e/67d073f547c23178-38/s640x960/4062c89daef7cf2a9b73931d0426868d4bd60c36.pnj" width="150" height="50">
-</a> <a href="https://shantyletsky.straw.page">
-  <img src="https://64.media.tumblr.com/5dee9f6dc854cebb458261b2bf02121d/67d073f547c23178-36/s640x960/d0f94c419c28ad63f790481b272d40c3e041c2e3.pnj" width="150" height="50">
-</a>
+</a> <a href="https://dividivi.straw.page/">
+  <img src="https://files.catbox.moe/ghui9p.png" width="150" height="50">
+</a> 
 </p>
 	  
 <img align="center" width="1570" height="15" alt="image" src=https://files.catbox.moe/83xp9m.jpg />
