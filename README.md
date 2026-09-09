@@ -2,7 +2,7 @@
 <img width="1000" height="70" src="https://files.catbox.moe/xv39sj.webp">
 		<p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Satisfy&size=30&pause=1000&color=F7BACB&center=true&width=600&lines=Take+a+chance+with+Chance%2C+take+a+chance+with+me+%E0%A7%BB%EA%AA%86" alt="Typing SVG" /></a>
-<img align="center" width="1570" height="1530" alt="image" src=https://64.media.tumblr.com/9fe40fe766d8a225284fed2247fb0ad5/0c13717b74df1d5f-91/s1280x1920/e13c9941c86565b1be72636380425f4143c1ace6.pnj />
+<img align="center" width="800" height="800" alt="image" src=https://files.catbox.moe/3prvac.png />
 <p align="center">
 	<img width="1000" height="40" src="https://files.catbox.moe/ansunn.png">
 <img width="110" height="20" alt="image" src=https://hits.sh/github.com/sea-shantyyy.svg?label=BLAMED%20JOHN&color=df9217&labelColor=f2d15b />
