@@ -1,5 +1,5 @@
 
-▪︎Gift for ACE0FHEART5 ♡ for MY information check my profile! accidentally deleted my personal readme...
+▪︎Gift for ACE0FHEART5 ♡ for MY information and links check my profile! accidentally deleted my personal readme...
 
 
 <img width="1000" height="140" src="https://files.catbox.moe/4vovq5.png">
