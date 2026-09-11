@@ -1,5 +1,3 @@
-this is a gift for ACE0FHEART5!! for my info check my profile links, preferably my pronouns page...
-
 <img width="1000" height="190" src="https://files.catbox.moe/017mvp.png">
 <img width="1000" height="70" src="https://files.catbox.moe/xv39sj.webp">
 		<p align="center">
