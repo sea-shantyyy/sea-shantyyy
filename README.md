@@ -17,10 +17,7 @@
 	  
 <img align="center" width="1570" height="15" alt="image" src=https://files.catbox.moe/83xp9m.jpg />
 	<p align="center">
-
-<img align="center" width="1570" height="15" alt="image" src=https://files.catbox.moe/83xp9m.jpg />
-	<p align="center">
-
+	
 <p align="center">
 	𝐺𝑜 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑦 𝑙𝑜𝑣𝑒𝑙𝑦 𝑜𝑜𝑚𝑓𝑠!: @ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5, @ᴛᴡᴏᴛᴛɪᴍᴇʏ, ᴛʜᴇʀᴇᴀʟᴠɪᴠɪᴀɴ, ᴄᴀʀᴄʀᴀꜱʜxᴏxᴏ
 	</p>
