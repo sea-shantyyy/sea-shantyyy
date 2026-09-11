@@ -20,5 +20,5 @@ this is a gift for ACE0FHEART5!! for my info check my profile links, preferably 
 <img align="center" width="1570" height="15" alt="image" src=https://files.catbox.moe/83xp9m.jpg />
 	<p align="center">
 	
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Instrument+Serif&pause=1000&color=F7B4C8&center=true&width=435&lines=Check+out+my+strawpage" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Instrument+Serif&pause=1000&color=F7B4C8&center=true&width=1000&lines=Visit+my+strawpage!;%E2%A7%BD+Github+gifted+by+sea-shantyyy" alt="Typing SVG" /></a>
 <img width="1000" height="130" src="https://files.catbox.moe/4vovq5.png">
