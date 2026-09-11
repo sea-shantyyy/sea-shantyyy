@@ -1,7 +1,7 @@
 <img width="1000" height="70" src="https://files.catbox.moe/xv39sj.webp">
 		<p align="center">
 
-<img align="center" width="450" height="600" alt="image" src=https://files.catbox.moe/mfwj27.png />
+<img align="center" width="250" height="400" alt="image" src=https://files.catbox.moe/mfwj27.png />
 <p align="center">
 	<img width="1000" height="40" src="https://files.catbox.moe/ansunn.png">
 <img width="110" height="20" alt="image" src=https://hits.sh/github.com/ACE0FHEART5.svg?label=WEAKNESS%20GAINED&color=E8B1B1&labelColor=F9E6E5 />
