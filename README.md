@@ -1,8 +1,7 @@
-<img width="1000" height="190" src="https://files.catbox.moe/017mvp.png">
 <img width="1000" height="70" src="https://files.catbox.moe/xv39sj.webp">
 		<p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Satisfy&size=30&pause=1000&color=F7BACB&center=true&width=600&lines=Take+a+chance+with+Chance%2C+take+a+chance+with+me+%E0%A7%BB%EA%AA%86" alt="Typing SVG" /></a>
-<img align="center" width="500" height="770" alt="image" src=https://files.catbox.moe/2onu4e.png />
+
+<img align="center" width="450" height="600" alt="image" src=https://files.catbox.moe/mfwj27.png />
 <p align="center">
 	<img width="1000" height="40" src="https://files.catbox.moe/ansunn.png">
 <img width="110" height="20" alt="image" src=https://hits.sh/github.com/ACE0FHEART5.svg?label=WEAKNESS%20GAINED&color=E8B1B1&labelColor=F9E6E5 />
