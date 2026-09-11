@@ -1,6 +1,6 @@
 this is a gift for ACE0FHEART5!! for my info check my profile links, preferably my pronouns page...
 
-<img width="1000" height="140" src="https://files.catbox.moe/4vovq5.png">
+<img width="1000" height="160" src="https://files.catbox.moe/017mvp.png">
 <img width="1000" height="70" src="https://files.catbox.moe/xv39sj.webp">
 		<p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Satisfy&size=30&pause=1000&color=F7BACB&center=true&width=600&lines=Take+a+chance+with+Chance%2C+take+a+chance+with+me+%E0%A7%BB%EA%AA%86" alt="Typing SVG" /></a>
@@ -23,4 +23,4 @@ this is a gift for ACE0FHEART5!! for my info check my profile links, preferably 
 <p align="center">
 	𝐺𝑜 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑦 𝑙𝑜𝑣𝑒𝑙𝑦 𝑜𝑜𝑚𝑓𝑠!: @ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5, @ᴛᴡᴏᴛᴛɪᴍᴇʏ, ᴛʜᴇʀᴇᴀʟᴠɪᴠɪᴀɴ, ᴄᴀʀᴄʀᴀꜱʜxᴏxᴏ
 	</p>
-<img width="1000" height="50" src="https://files.catbox.moe/41h05k.png">
+<img width="1000" height="130" src="https://files.catbox.moe/4vovq5.png">
