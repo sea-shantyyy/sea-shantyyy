@@ -14,4 +14,7 @@
 <p align="center">
 𝐴𝑙𝑠𝑜 𝑠𝑖𝑔𝑛 𝑚𝑦 𝐴𝑇𝐴 𝐵𝑜𝑜𝑘!
 </p>
+<p align="center">
+⊰⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⊱
+</p>
 <img width="1000" height="30" src="https://files.catbox.moe/xv39sj.webp">
