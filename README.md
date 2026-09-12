@@ -1,5 +1,4 @@
-<img width="1000" height="250" src="https://files.catbox.moe/xwykzc.png">
-
+<img width="1000" height="30" src="https://files.catbox.moe/xv39sj.webp">
 <p align="center">
 ⊰┈┈┈┈┈┈⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔・୨ ✦ ୧・⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔┈┈┈┈┈┈⊱
 </p>
