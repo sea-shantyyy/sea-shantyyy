@@ -12,6 +12,13 @@
 𝐴𝑙𝑠𝑜 𝑠𝑖𝑔𝑛 𝑚𝑦 𝐴𝑇𝐴 𝐵𝑜𝑜𝑘!
 </p>
 <p align="center">
+<a href="https://pronouns.cc/@sea_shanty">
+  <img src="https://files.catbox.moe/4mxcu2.png" width="150" height="50">
+</a> <a href="sea-shanty.atabook.org">
+  <img src="https://files.catbox.moe/y272l3.png" width="150" height="50">
+</a> 
+</p>
+<p align="center">
 ⊰⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⊱
 </p>
 <img width="1000" height="30" src="https://files.catbox.moe/xv39sj.webp">
