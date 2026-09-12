@@ -8,5 +8,5 @@
 <p align="center">
 ⊰┈┈┈┈┈┈⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔・୨ ✦ ୧・⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔┈┈┈┈┈┈⊱
 </p>
-<img align="center" width="500" height="500" src="https://files.catbox.moe/y7s3i2.png">
+<img align="center" width="300" height="300" src="https://files.catbox.moe/brw74z.png">
 <img width="1000" height="30" src="https://files.catbox.moe/xv39sj.webp">
