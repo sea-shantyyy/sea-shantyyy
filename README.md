@@ -9,6 +9,6 @@
 ⊰┈┈┈┈┈┈⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔・୨ ✦ ୧・⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔┈┈┈┈┈┈⊱
 </p>
 <p align="center">
-<img align="center" width="350" height="350" src="https://files.catbox.moe/brw74z.png">
+<img align="center" width="330" height="330" src="https://files.catbox.moe/brw74z.png">
 </p>
 <img width="1000" height="30" src="https://files.catbox.moe/xv39sj.webp">
