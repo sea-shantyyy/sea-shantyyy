@@ -1,3 +1,5 @@
+<img width="1000" height="30" src="https://files.catbox.moe/xv39sj.webp">
+
 <p align="center">
 ⊰┈┈┈┈┈┈⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔・୨ ✦ ୧・⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔┈┈┈┈┈┈⊱
 </p>
@@ -7,3 +9,4 @@
 <p align="center">
 ⊰┈┈┈┈┈┈⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔・୨ ✦ ୧・⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔┈┈┈┈┈┈⊱
 </p>
+<img width="1000" height="30" src="https://files.catbox.moe/xv39sj.webp">
