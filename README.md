@@ -14,7 +14,7 @@
 <p align="center">
 <a href="https://pronouns.cc/@sea_shanty">
   <img src="https://files.catbox.moe/4mxcu2.png" width="150" height="50">
-</a> <a href="sea-shanty.atabook.org">
+</a> <a href="https://sea-shanty.atabook.org/">
   <img src="https://files.catbox.moe/y272l3.png" width="150" height="50">
 </a> 
 </p>
