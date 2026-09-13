@@ -24,4 +24,3 @@
 ⊰⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⊱
 </p>
 <img width="1000" height="30" src="https://files.catbox.moe/xv39sj.webp">
-${\textsf{\color{#EFE5C1
