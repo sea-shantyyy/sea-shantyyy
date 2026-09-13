@@ -19,6 +19,6 @@
 </a> 
 </p>
 <p align="center">
-⊰⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⊱
+⊰⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⊱
 </p>
 <img width="1000" height="30" src="https://files.catbox.moe/xv39sj.webp">
