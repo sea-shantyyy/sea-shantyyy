@@ -19,7 +19,7 @@
 </a> 
 </p>
 ‎<details><summary>$\color{#f9ae1b}{AWARDS/TITLES}$</summary>
-
+WIP
 </details>
 
 <p align="center">
