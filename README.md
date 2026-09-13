@@ -9,7 +9,9 @@
 <img align="center" width="330" height="330" src="https://files.catbox.moe/brw74z.png">
 </p>
 <p align="center">
-𝐴𝑙𝑠𝑜 𝑠𝑖𝑔𝑛 𝑚𝑦 𝐴𝑇𝐴 𝐵𝑜𝑜𝑘!
+  ${\textsf{\color{#B3B7BB}　　　𝐴𝑙𝑠𝑜 𝑠𝑖𝑔𝑛 𝑚𝑦 𝐴𝑇𝐴 𝐵𝑜𝑜𝑘!}}$
+
+
 </p>
 <p align="center">
 <a href="https://pronouns.cc/@sea_shanty">
