@@ -18,9 +18,11 @@
   <img src="https://files.catbox.moe/y272l3.png" width="150" height="50">
 </a> 
 </p>
-‎<details><summary>$\color{#f9ae1b}{AWARDS/TITLES}$</summary>
-WIP
-</details>
+<p align="center">
+‎  <details><summary>$\color{#f9ae1b}{AWARDS/TITLES}$</summary>
+  WIP
+  </details>
+</p>
 
 <p align="center">
 ⊰⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⊱
