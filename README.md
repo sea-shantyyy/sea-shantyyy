@@ -20,7 +20,9 @@
 </p>
 <p align="center">
 ‎  <details><summary>$\color{#f9ae1b}{AWARDS/TITLES}$</summary>
-  WIP
+  SHEDLETSKY/TELAMON OF PONYTOWN: Thank you @pt-of-awesomeness, pt-nominations, @charactersofpt, @ponytown-nominations, @ponychievements !
+  SHEDLETSKY/TELAMON'S BIGGEST FAN: Thank you @fans-town !
+  #1 LUCKYADMIN/CHICKENROULETTE SHIPPER [with my darling Divinity]: Thank you @ship-town !
   </details>
 </p>
 
