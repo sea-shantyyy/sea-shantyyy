@@ -20,7 +20,7 @@
 </p>
 <p align="center">
 ‎  <details><summary>$\color{#f9ae1b}{AWARDS/TITLES}$</summary>
-𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍 𝐎𝐅 𝐏𝐎𝐍𝐘𝐓𝐎𝐖𝐍  : Thank you @pt-of-awesomeness, pt-nominations, @charactersofpt, @ponytown-nominations, @ponychievements !
+𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍 𝐎𝐅 𝐏𝐎𝐍𝐘𝐓𝐎𝐖𝐍  : Thank you @pt-of-awesomeness, pt-nominations, @charactersofpt, @ponytown-nominations, @ponychievements and @forsakentown !
   
 𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍'𝐒 𝐁𝐈𝐆𝐆𝐄𝐒𝐓 𝐅𝐀𝐍: Thank you @fans-town !
 
