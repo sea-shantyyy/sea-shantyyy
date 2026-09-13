@@ -20,12 +20,11 @@
 </p>
 <p align="center">
 ‎  <details><summary>$\color{#f9ae1b}{AWARDS/TITLES}$</summary>
-  SHEDLETSKY/TELAMON OF PONYTOWN: Thank you @pt-of-awesomeness, pt-nominations, @charactersofpt, @ponytown-nominations, @ponychievements !
+𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍 𝐎𝐅 𝐏𝐎𝐍𝐘𝐓𝐎𝐖𝐍  : Thank you @pt-of-awesomeness, pt-nominations, @charactersofpt, @ponytown-nominations, @ponychievements !
   
-  
-  SHEDLETSKY/TELAMON'S BIGGEST FAN: Thank you @fans-town !
-  
-  #1 LUCKYADMIN/CHICKENROULETTE SHIPPER [with my darling Divinity]: Thank you @ship-town !
+𝐒𝐇𝐄𝐃𝐋𝐄𝐓𝐒𝐊𝐘/𝐓𝐄𝐋𝐀𝐌𝐎𝐍'𝐒 𝐁𝐈𝐆𝐆𝐄𝐒𝐓 𝐅𝐀𝐍: Thank you @fans-town !
+
+#𝟏 𝐋𝐔𝐂𝐊𝐘𝐀𝐃𝐌𝐈𝐍/𝐂𝐇𝐈𝐂𝐊𝐄𝐍𝐑𝐎𝐔𝐋𝐄𝐓𝐓𝐄 𝐒𝐇𝐈𝐏𝐏𝐄𝐑 [with my darling Divinity]: Thank you @ship-town !
   </details>
 </p>
 
