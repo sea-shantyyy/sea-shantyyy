@@ -14,4 +14,6 @@
 <p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝ ⏝ ͝ ︶𝅄⏝ ͝ 
 </p>
-<img width="1640" height="70" src="https://file.garden/au1asPGbEpA_fc0k/Tumblr_l_1145991282841474.jpg" />
+<p align="center">
+   <img width="1400" height="100" src="https://file.garden/au1asPGbEpA_fc0k/Tumblr_l_1146075106487796.jpg" />
+</p>
