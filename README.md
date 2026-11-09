@@ -9,6 +9,9 @@
    𐔌. ⋮ ꜱɪɢɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴀᴛᴀʙᴏᴏᴋ .ᐟ ₊ ꒱
 </p>
 <p align="center">
+   <a href="https://hits.sh/github.com/sea-shantyyy/"><img alt="Hits" src="https://hits.sh/github.com/sea-shantyyy.svg?label=PWNED&color=f16262&labelColor=ffeb96"/></a>
+</p>
+<p align="center">
 ᴾˡᵉᵃˢᵉ ʳᵉᵃᵈ ᵐʸ ˢᵗᵃᵗᵉᵐᵉⁿᵗ ʳᵉᵍᵃʳᵈⁱⁿᵍ ᴰⁱᵛⁱⁿⁱᵗʸ/ᴶᵉᵗᵗ/ˢᵗᵃⁿ ⁱⁿ ᵐʸ ˡⁱⁿᵏˢ
 </p>
 <p align="center">
