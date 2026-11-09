@@ -6,7 +6,7 @@
 ᴾˡᵉᵃˢᵉ ʳᵉᵃᵈ ᵐʸ ˢᵗᵃᵗᵉᵐᵉⁿᵗ ʳᵉᵍᵃʳᵈⁱⁿᵍ ᴰⁱᵛⁱⁿⁱᵗʸ/ᴶᵉᵗᵗ/ˢᵗᵃⁿ ⁱⁿ ᵐʸ ˡⁱⁿᵏˢ
 </p>
 <p align="center">
-   <img width="200" height="180" src="https://files.catbox.moe/tbr7h3.png" />
+   <img width="230" height="180" src="https://file.garden/au1asPGbEpA_fc0k/Untitled319_20261108212550.png" />
 </p>
 <p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝ ⏝ ͝ ︶𝅄⏝ ͝ 
