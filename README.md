@@ -6,7 +6,7 @@
 ᴛʜɪꜱ ɪꜱ ʙᴇɪɴɢ ᴄᴏᴍᴘʟᴇᴛᴇʟʏ ʀᴇᴍᴀᴅᴇ! ᴄʜᴇᴄᴋ ᴏᴜᴛ ᴍʏ ɴᴇᴡ ꜱᴛʀᴀᴡᴘᴀɢᴇ ꜰᴏʀ ᴍʏ ʙᴏᴜɴᴅᴀʀɪᴇꜱ ᴀɴᴅ ɪɴꜰᴏ𑁤
 </p>
 <p align="center">
-sιgᥒ mყ strᥲwρᥲgᥱ ᥲᥒd ᥲtᥲbook
+𝐒𝚒gᥒ mყ strᥲwρᥲgᥱ ᥲᥒd ᥲtᥲbook
 </p>
 <p align="center">
    <a href="https://hits.sh/github.com/sea-shantyyy/"><img alt="Hits" src="https://hits.sh/github.com/sea-shantyyy.svg?label=PWNED&color=f16262&labelColor=ffeb96"/></a>
