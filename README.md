@@ -6,7 +6,7 @@
    <img width="300" height="300" src="https://file.garden/au1asPGbEpA_fc0k/Untitled323_20261109235644.png" />
 </p>
 <p align="center">
-𝚂𝚒𝚐𝚗 𝚖𝚢 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚊𝚗𝚍 𝙰𝚃𝙰𝙱𝚘𝚘𝚔!
+𝐒𝐢𝐠𝐧 𝐦𝐲 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞 𝐚𝐧𝐝 𝐀𝐓𝐀𝐁𝐨𝐨𝐤!
 </p>
 <p align="center">
    <a href="https://hits.sh/github.com/sea-shantyyy/"><img alt="Hits" src="https://hits.sh/github.com/sea-shantyyy.svg?label=%E1%91%ADEO%E1%91%AD%E1%92%AAE%20%20%E1%91%AD%E1%97%AF%E1%91%8EE%E1%97%AA&color=f16262&labelColor=ffeb96"/></a>
