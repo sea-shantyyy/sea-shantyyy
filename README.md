@@ -1,12 +1,9 @@
 <img width="1640" height="180" src="https://files.catbox.moe/4i611g.jpg" />
 <p align="center">
+<img width="600" height="200" src="https://file.garden/au1asPGbEpA_fc0k/Untitled325_20261110122914.png" />
+</p>
+<p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
-</p>
-<p align="center">
-<img width="800" height="200" src="https://file.garden/au1asPGbEpA_fc0k/Untitled325_20261110122405.png" />
-</p>
-<p align="center">
-   <img width="300" height="300" src="https://file.garden/au1asPGbEpA_fc0k/Untitled323_20261109235644.png" />
 </p>
 <p align="center">
 𝐒𝐢𝐠𝐧 𝐦𝐲 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞 𝐚𝐧𝐝 𝐀𝐓𝐀𝐁𝐨𝐨𝐤!
