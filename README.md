@@ -18,7 +18,7 @@
 <div align="center">
 <details>
   <summary>
-    𝙸𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗 𝙸𝚗𝚏𝚘
+    ┊𝙸𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗 𝙸𝚗𝚏𝚘
   </summary>
 <div align= "center">
    -----------------------------------------
@@ -35,7 +35,7 @@
 <div align="center">
 <details>
   <summary>
-    𝙼𝚢 𝙺𝚒𝚗𝚜
+    ┊𝙼𝚢 𝙺𝚒𝚗𝚜
   </summary>
 <div align= "center">
    -----------------------------------------
@@ -67,7 +67,7 @@
 <div align="center">
 <details>
   <summary>
-    𝚈𝚞𝚖𝚎𝚜
+    ┊𝚈𝚞𝚖𝚎𝚜
   </summary>
 <div align= "center">
    -----------------------------------------
@@ -85,7 +85,7 @@
 <div align="center">
 <details>
   <summary>
-    𝙵𝚊𝚗𝚍𝚘𝚖𝚜, 𝙸𝚗𝚝𝚎𝚛𝚎𝚜𝚝𝚜, 𝚎𝚝𝚌.
+    ┊𝙵𝚊𝚗𝚍𝚘𝚖𝚜, 𝙸𝚗𝚝𝚎𝚛𝚎𝚜𝚝𝚜, 𝚎𝚝𝚌.
   </summary>
 <div align= "center">
    -----------------------------------------
