@@ -6,6 +6,9 @@
    <img width="300" height="300" src="https://file.garden/au1asPGbEpA_fc0k/Tumblr_l_1185420629276016.jpg" />
 </p>
 <p align="center">
+ᴛʜɪꜱ ɪꜱ ʙᴇɪɴɢ ᴄᴏᴍᴘʟᴇᴛᴇʟʏ ʀᴇᴍᴀᴅᴇ! ᴄʜᴇᴄᴋ ᴏᴜᴛ ᴍʏ ɴᴇᴡ ꜱᴛʀᴀᴡᴘᴀɢᴇ ꜰᴏʀ ᴍʏ ʙᴏᴜɴᴅᴀʀɪᴇꜱ ᴀɴᴅ ɪɴꜰᴏ𑁤
+</p>
+<p align="center">
 𝚂𝚒𝚐𝚗 𝚖𝚢 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚊𝚗𝚍 𝙰𝚃𝙰𝙱𝚘𝚘𝚔!
 </p>
 <p align="center">
@@ -15,12 +18,12 @@
    · · ─ ·✶· ─ · ·
 </p>
 <!--INFO-->
-<div>
+<div align="center">
 <details>
   <summary>
     ┆𝙸𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗 𝙸𝚗𝚏𝚘
   </summary>
-<div>
+<div align= "center">
    -----------------------------------------
    
    -ɪᴛ ᴍᴀᴋᴇꜱ ᴍᴇ ꜱᴜᴘᴇʀ ʜᴀᴘᴘʏ ᴛᴏ ʙᴇ ʀᴇᴄᴏɢɴɪᴢᴇᴅ ᴀꜱ ꜱʜᴇᴅʟᴇᴛꜱᴋʏ ᴏʀ ᴄᴏᴍᴘᴀʀᴇᴅ ᴛᴏ ʜɪᴍ!! 
@@ -34,12 +37,12 @@
 </details>
 
 <!--INFO-->
-<div>
+<div align="center">
 <details>
   <summary>
     ┆𝙼𝚢 𝙺𝚒𝚗𝚜
   </summary>
-<div>
+<div align= "center">
    -----------------------------------------
    
    ꜱʜᴇᴅʟᴇᴛꜱᴋʏ/ᴛᴇʟᴀᴍᴏɴ (ꜰɪᴄᴛɪᴏɴʟɪɴᴋ) - ᴅᴏᴜʙʟᴇꜱ ɪᴡᴄ
@@ -66,12 +69,12 @@
 </details>
 
 <!--INFO-->
-<div>
+<div align="center">
 <details>
   <summary>
     ┆𝚈𝚞𝚖𝚎𝚜
   </summary>
-<div>
+<div align= "center">
    -----------------------------------------
   
    ɪɴᴠᴇꜱᴛɪɢᴀᴛᴏʀ ɪʀɪꜱ (ɴᴏɴ-ꜱʜᴀʀɪɴɢ?)
@@ -84,12 +87,12 @@
 </details>
 
 <!--INFO-->
-<div>
+<div align="center">
 <details>
   <summary>
     ┆𝙵𝚊𝚗𝚍𝚘𝚖𝚜, 𝙸𝚗𝚝𝚎𝚛𝚎𝚜𝚝𝚜, 𝚎𝚝𝚌.
   </summary>
-<div>
+<div align= "center">
    -----------------------------------------
    
    𝐅𝐀𝐍𝐃𝐎𝐌𝐒: ꜰᴏʀꜱᴀᴋᴇɴ, ʀᴏʙʟᴏx ᴀᴅᴍɪɴꜱ, ʙᴀᴅ ᴛʜɪɴɢꜱ, ᴇɴɴᴇᴀʜᴜᴍᴀɴꜱ, ʙʟᴏᴄᴋᴛᴀʟᴇꜱ, ᴀʀᴇɢᴇᴄᴛ
