@@ -6,19 +6,33 @@
 ᴛʜɪꜱ ɪꜱ ʙᴇɪɴɢ ᴄᴏᴍᴘʟᴇᴛᴇʟʏ ʀᴇᴍᴀᴅᴇ! ᴄʜᴇᴄᴋ ᴏᴜᴛ ᴍʏ ɴᴇᴡ ꜱᴛʀᴀᴡᴘᴀɢᴇ ꜰᴏʀ ᴍʏ ʙᴏᴜɴᴅᴀʀɪᴇꜱ ᴀɴᴅ ɪɴꜰᴏ𑁤
 </p>
 <p align="center">
-𝐒𝚒gᥒ mყ strᥲwρᥲgᥱ ᥲᥒd ᥲtᥲbook
+𝚂𝚒𝚐𝚗 𝚖𝚢 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚊𝚗𝚍 𝙰𝚃𝙰𝙱𝚘𝚘𝚔!
 </p>
 <p align="center">
    <a href="https://hits.sh/github.com/sea-shantyyy/"><img alt="Hits" src="https://hits.sh/github.com/sea-shantyyy.svg?label=PWNED&color=f16262&labelColor=ffeb96"/></a>
-</p>
-<p align="center">
-𝚃𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 𝚏𝚘𝚛 𝚊𝚕𝚕 𝚘𝚏 𝚝𝚑𝚎 𝚂𝚑𝚎𝚍𝚕𝚎𝚝𝚜𝚔𝚢 𝚝𝚒𝚝𝚕𝚎𝚜!!
 </p>
 <!--INFO-->
 <div align="center">
 <details>
   <summary>
-    My Kins/Yumes
+    𝙸𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗 𝙸𝚗𝚏𝚘
+  </summary>
+<div align= "center">
+   -Currently less active due to stress, typically online online if I'm with friends
+
+   -If I'm alone, I'm most likely off-tab!
+
+   -Please don't cover me, I will most likely hide you unless you're cuddling!
+
+   -I might be a little awkward if I'm not with friends, but feel free to cuddle!
+</p>
+</details>
+
+<!--INFO-->
+<div align="center">
+<details>
+  <summary>
+    𝙼𝚢 𝙺𝚒𝚗𝚜 & 𝚈𝚞𝚖𝚎𝚜
   </summary>
 <div align= "center">
    𝐊𝐈𝐍𝐒
@@ -52,6 +66,24 @@
    Taph (Familial)
 </p>
 </details>
+
+<!--INFO-->
+<div align="center">
+<details>
+  <summary>
+    𝙵𝚊𝚗𝚍𝚘𝚖𝚜, 𝙸𝚗𝚝𝚎𝚛𝚎𝚜𝚝𝚜, 𝚎𝚝𝚌.
+  </summary>
+<div align= "center">
+   𝐅𝐀𝐍𝐃𝐎𝐌𝐒: Forsaken, Roblox admins, Bad Things, Enneahumans, Blocktales, AReGect
+
+   𝐈𝐍𝐓𝐄𝐑𝐄𝐒𝐓𝐒: Anatomy, Roller coaster history and design, Typology, Music, Birds, Fashion, Art history
+
+   𝐇𝐎𝐁𝐁𝐈𝐄𝐒: Violin, Writing, Drawing, Ice skating, Photography, Making playlists
+   
+</p>
+</details>
+
+
 <p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹
 </p>
