@@ -18,13 +18,15 @@
     𝙸𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗 𝙸𝚗𝚏𝚘
   </summary>
 <div align= "center">
-   -Currently less active due to stress, typically online online if I'm with friends
+   -----------------------------------------
+   
+   -ᴄᴜʀʀᴇɴᴛʟʏ ʟᴇꜱꜱ ᴀᴄᴛɪᴠᴇ ᴅᴜᴇ ᴛᴏ ꜱᴛʀᴇꜱꜱ, ᴛʏᴘɪᴄᴀʟʟʏ ᴏɴʟʏ ᴏɴʟɪɴᴇ ɪꜰ ɪ'ᴍ ᴡɪᴛʜ ꜰʀɪᴇɴᴅꜱ
+   
+   -ɪꜰ ɪ'ᴍ ᴀʟᴏɴᴇ, ɪ'ᴍ ᴍᴏꜱᴛ ʟɪᴋᴇʟʏ ᴏꜰꜰ-ᴛᴀʙ!
 
-   -If I'm alone, I'm most likely off-tab!
+   -ᴘʟᴇᴀꜱᴇ ᴅᴏɴ'ᴛ ᴄᴏᴠᴇʀ ᴍᴇ, ɪ ᴡɪʟʟ ᴍᴏꜱᴛ ʟɪᴋᴇʟʏ ʜɪᴅᴇ ʏᴏᴜ ᴜɴʟᴇꜱꜱ ʏᴏᴜ'ʀᴇ ᴄᴜᴅᴅʟɪɴɢ!
 
-   -Please don't cover me, I will most likely hide you unless you're cuddling!
-
-   -I might be a little awkward if I'm not with friends, but feel free to cuddle!
+   -ɪ ᴍɪɢʜᴛ ʙᴇ ᴀ ʟɪᴛᴛʟᴇ ᴀᴡᴋᴡᴀʀᴅ ɪꜰ ɪ'ᴍ ɴᴏᴛ ᴡɪᴛʜ ꜰʀɪᴇɴᴅꜱ, ʙᴜᴛ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄᴜᴅᴅʟᴇ!
 </p>
 </details>
 
