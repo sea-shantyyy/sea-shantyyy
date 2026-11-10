@@ -34,10 +34,10 @@
 <div align="center">
 <details>
   <summary>
-    𝙼𝚢 𝙺𝚒𝚗𝚜 & 𝚈𝚞𝚖𝚎𝚜
+    𝙼𝚢 𝙺𝚒𝚗𝚜
   </summary>
 <div align= "center">
-   𝐊𝐈𝐍𝐒
+   -----------------------------------------
    
    Shedletsky/Telamon (Fictionlink)
 
@@ -59,13 +59,24 @@
 
    Charlotte Emily
 
-   𝐘𝐔𝐌𝐄𝐒
+</p>
+</details>
 
+<!--INFO-->
+<div align="center">
+<details>
+  <summary>
+    𝚈𝚞𝚖𝚎𝚜
+  </summary>
+<div align= "center">
+   -----------------------------------------
+  
    Investigator Iris (Non-sharing?)
 
    Brighteyes
 
    Taph (Familial)
+   
 </p>
 </details>
 
@@ -76,6 +87,8 @@
     𝙵𝚊𝚗𝚍𝚘𝚖𝚜, 𝙸𝚗𝚝𝚎𝚛𝚎𝚜𝚝𝚜, 𝚎𝚝𝚌.
   </summary>
 <div align= "center">
+   -----------------------------------------
+   
    𝐅𝐀𝐍𝐃𝐎𝐌𝐒: Forsaken, Roblox admins, Bad Things, Enneahumans, Blocktales, AReGect
 
    𝐈𝐍𝐓𝐄𝐑𝐄𝐒𝐓𝐒: Anatomy, Roller coaster history and design, Typology, Music, Birds, Fashion, Art history
