@@ -18,9 +18,11 @@
 <div align="center">
 <details>
   <summary>
-    Kins and Yumes
+    My Kins/Yumes
   </summary>
 <div align= "center">
+   𝐊𝐈𝐍𝐒
+   
    Shedletsky/Telamon (Fictionlink)
 
    SonofSevenless (Fictionlink, copinglink)
@@ -40,6 +42,14 @@
    Frisk
 
    Charlotte Emily
+
+   𝐘𝐔𝐌𝐄𝐒
+
+   Investigator Iris (Non-sharing?)
+
+   Brighteyes
+
+   Taph (Familial)
 </p>
 </details>
 <p align="center">
