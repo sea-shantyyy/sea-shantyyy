@@ -14,6 +14,20 @@
 <p align="center">
 𝚃𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 𝚏𝚘𝚛 𝚊𝚕𝚕 𝚘𝚏 𝚝𝚑𝚎 𝚂𝚑𝚎𝚍𝚕𝚎𝚝𝚜𝚔𝚢 𝚝𝚒𝚝𝚕𝚎𝚜!!
 </p>
+<!--INFO-->
+<div align="center">
+<details>
+  <summary>
+    Basic Interaction Info - See Strawpage for more details 
+  </summary>
+<div align= "center">
+   I'm currently online less due to stress-- typically only online if I'm with friends
+  
+  I'm a yumeshippers , haters dni , i don't care what you think , It brings me comfort.
+  
+  Don't get me into drama , i can't get stressed due to medical and mental reasons , if you have any problem with me , interact with care or whisper
+</p>
+</details>
 <p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹
 </p>
