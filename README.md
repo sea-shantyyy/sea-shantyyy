@@ -72,11 +72,11 @@
 <div align= "center">
    -----------------------------------------
   
-   Investigator Iris (Non-sharing?)
+   ɪɴᴠᴇꜱᴛɪɢᴀᴛᴏʀ ɪʀɪꜱ (ɴᴏɴ-ꜱʜᴀʀɪɴɢ?)
 
-   Brighteyes
+   ʙʀɪɢʜᴛᴇʏᴇꜱ (ɴᴏɴ-ꜱʜᴀʀɪɴɢ?)
 
-   Taph (Familial)
+   ᴛᴀᴘʜ (ꜰᴀᴍɪʟɪᴀʟ)
    
 </p>
 </details>
@@ -90,11 +90,11 @@
 <div align= "center">
    -----------------------------------------
    
-   𝐅𝐀𝐍𝐃𝐎𝐌𝐒: Forsaken, Roblox admins, Bad Things, Enneahumans, Blocktales, AReGect
+   𝐅𝐀𝐍𝐃𝐎𝐌𝐒: ꜰᴏʀꜱᴀᴋᴇɴ, ʀᴏʙʟᴏx ᴀᴅᴍɪɴꜱ, ʙᴀᴅ ᴛʜɪɴɢꜱ, ᴇɴɴᴇᴀʜᴜᴍᴀɴꜱ, ʙʟᴏᴄᴋᴛᴀʟᴇꜱ, ᴀʀᴇɢᴇᴄᴛ
 
-   𝐈𝐍𝐓𝐄𝐑𝐄𝐒𝐓𝐒: Anatomy, Roller coaster history and design, Typology, Music, Birds, Fashion, Art history
+   𝐈𝐍𝐓𝐄𝐑𝐄𝐒𝐓𝐒: ᴀɴᴀᴛᴏᴍʏ, ʀᴏʟʟᴇʀ ᴄᴏᴀꜱᴛᴇʀ ʜɪꜱᴛᴏʀʏ ᴀɴᴅ ᴅᴇꜱɪɢɴ, ᴛʏᴘᴏʟᴏɢʏ, ᴍᴜꜱɪᴄ, ʙɪʀᴅꜱ, ꜰᴀꜱʜɪᴏɴ, ᴀʀᴛ ʜɪꜱᴛᴏʀʏ
 
-   𝐇𝐎𝐁𝐁𝐈𝐄𝐒: Violin, Writing, Drawing, Ice skating, Photography, Making playlists
+   𝐇𝐎𝐁𝐁𝐈𝐄𝐒: ᴠɪᴏʟɪɴ, ᴡʀɪᴛɪɴɢ, ᴅʀᴀᴡɪɴɢ, ɪᴄᴇ ꜱᴋᴀᴛɪɴɢ, ᴘʜᴏᴛᴏɢʀᴀᴘʜʏ, ᴍᴀᴋɪɴɢ ᴘʟᴀʏʟɪꜱᴛꜱ
    
 </p>
 </details>
