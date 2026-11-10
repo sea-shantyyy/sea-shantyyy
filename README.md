@@ -6,13 +6,13 @@
 ᴛʜɪꜱ ɪꜱ ʙᴇɪɴɢ ᴄᴏᴍᴘʟᴇᴛᴇʟʏ ʀᴇᴍᴀᴅᴇ! ᴄʜᴇᴄᴋ ᴏᴜᴛ ᴍʏ ɴᴇᴡ ꜱᴛʀᴀᴡᴘᴀɢᴇ ꜰᴏʀ ᴍʏ ʙᴏᴜɴᴅᴀʀɪᴇꜱ ᴀɴᴅ ɪɴꜰᴏ𑁤
 </p>
 <p align="center">
-   𐔌. ⋮ ꜱɪɢɴ ᴍʏ ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴀɴᴅ ᴀᴛᴀʙᴏᴏᴋ .ᐟ ₊ ꒱
+sιgᥒ mყ strᥲwρᥲgᥱ ᥲᥒd ᥲtᥲbook
 </p>
 <p align="center">
    <a href="https://hits.sh/github.com/sea-shantyyy/"><img alt="Hits" src="https://hits.sh/github.com/sea-shantyyy.svg?label=PWNED&color=f16262&labelColor=ffeb96"/></a>
 </p>
 <p align="center">
-ᴾˡᵉᵃˢᵉ ʳᵉᵃᵈ ᵐʸ ˢᵗᵃᵗᵉᵐᵉⁿᵗ ʳᵉᵍᵃʳᵈⁱⁿᵍ ᴰⁱᵛⁱⁿⁱᵗʸ/ᴶᵉᵗᵗ/ˢᵗᵃⁿ ⁱⁿ ᵐʸ ˡⁱⁿᵏˢ
+𝚃𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 𝚏𝚘𝚛 𝚊𝚕𝚕 𝚘𝚏 𝚝𝚑𝚎 𝚂𝚑𝚎𝚍𝚕𝚎𝚝𝚜𝚔𝚢 𝚝𝚒𝚝𝚕𝚎𝚜!!
 </p>
 <p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝ ⏝ ͝ ︶𝅄⏝ ͝ 
