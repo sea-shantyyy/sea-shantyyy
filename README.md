@@ -9,9 +9,6 @@
 𝚂𝚒𝚐𝚗 𝚖𝚢 𝚂𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚊𝚗𝚍 𝙰𝚃𝙰𝙱𝚘𝚘𝚔!
 </p>
 <p align="center">
-   <img width="300" height="225" src="https://file.garden/au1asPGbEpA_fc0k/Untitled319_20261109204353.png" />
-</p>
-<p align="center">
    <a href="https://hits.sh/github.com/sea-shantyyy/"><img alt="Hits" src="https://hits.sh/github.com/sea-shantyyy.svg?label=%E1%91%ADEO%E1%91%AD%E1%92%AAE%20%20%E1%91%AD%E1%97%AF%E1%91%8EE%E1%97%AA&color=f16262&labelColor=ffeb96"/></a>
 </p>
 <!--INFO-->
