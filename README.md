@@ -18,14 +18,28 @@
 <div align="center">
 <details>
   <summary>
-    Basic Interaction Info - See Strawpage for more details 
+    Kins and Yumes
   </summary>
 <div align= "center">
-   I'm currently online less due to stress-- typically only online if I'm with friends
-  
-  I'm a yumeshippers , haters dni , i don't care what you think , It brings me comfort.
-  
-  Don't get me into drama , i can't get stressed due to medical and mental reasons , if you have any problem with me , interact with care or whisper
+   Shedletsky/Telamon (Fictionlink)
+
+   SonofSevenless (Fictionlink, copinglink)
+   
+   Slasher (Copinglink)
+
+   Andrew (Copinglink)
+
+   1x1x1x1 (Questioning copinglink)
+
+   Ink Sans (Heavy synpath)
+
+   Player (Heavy synpath)
+
+   Kyoko
+
+   Frisk
+
+   Charlotte Emily
 </p>
 </details>
 <p align="center">
