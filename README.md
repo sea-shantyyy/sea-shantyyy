@@ -128,8 +128,9 @@
 </p>
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=c44949&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=c44949&bar_color_cover=false">
   </a>
+</p>
 </p>
 <p align="center">
    <img width="1400" height="100" src="https://file.garden/au1asPGbEpA_fc0k/Tumblr_l_1146075106487796.jpg" />
