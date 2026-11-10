@@ -40,25 +40,25 @@
 <div align= "center">
    -----------------------------------------
    
-   Shedletsky/Telamon (Fictionlink)
+   ꜱʜᴇᴅʟᴇᴛꜱᴋʏ/ᴛᴇʟᴀᴍᴏɴ (ꜰɪᴄᴛɪᴏɴʟɪɴᴋ)
 
-   SonofSevenless (Fictionlink, copinglink)
+   ꜱᴏɴᴏꜰꜱᴇᴠᴇɴʟᴇꜱꜱ (ꜰɪᴄᴛɪᴏɴʟɪɴᴋ, ᴄᴏᴘɪɴɢʟɪɴᴋ)
    
-   Slasher (Copinglink)
+   ꜱʟᴀꜱʜᴇʀ (ᴄᴏᴘɪɴɢʟɪɴᴋ)
 
-   Andrew (Copinglink)
+   ᴀɴᴅʀᴇᴡ (ᴄᴏᴘɪɴɢʟɪɴᴋ)
 
-   1x1x1x1 (Questioning copinglink)
+   1x1x1x1 (Qᴜᴇꜱᴛɪᴏɴɪɴɢ ᴄᴏᴘɪɴɢʟɪɴᴋ)
 
-   Ink Sans (Heavy synpath)
+   ɪɴᴋ ꜱᴀɴꜱ (ʜᴇᴀᴠʏ ꜱʏɴᴘᴀᴛʜ)
 
-   Player (Heavy synpath)
+   ᴘʟᴀʏᴇʀ (ʜᴇᴀᴠʏ ꜱʏɴᴘᴀᴛʜ)
 
-   Kyoko
+   ᴋʏᴏᴋᴏ
+   
+   ꜰʀɪꜱᴋ
 
-   Frisk
-
-   Charlotte Emily
+   ᴄʜᴀʀʟᴏᴛᴛᴇ ᴇᴍɪʟʏ
 
 </p>
 </details>
