@@ -3,6 +3,9 @@
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹
 </p>
 <p align="center">
+   <img width="300" height="300" src="https://file.garden/au1asPGbEpA_fc0k/Tumblr_l_1185420629276016.jpg" />
+</p>
+<p align="center">
 ᴛʜɪꜱ ɪꜱ ʙᴇɪɴɢ ᴄᴏᴍᴘʟᴇᴛᴇʟʏ ʀᴇᴍᴀᴅᴇ! ᴄʜᴇᴄᴋ ᴏᴜᴛ ᴍʏ ɴᴇᴡ ꜱᴛʀᴀᴡᴘᴀɢᴇ ꜰᴏʀ ᴍʏ ʙᴏᴜɴᴅᴀʀɪᴇꜱ ᴀɴᴅ ɪɴꜰᴏ𑁤
 </p>
 <p align="center">
