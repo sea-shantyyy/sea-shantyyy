@@ -3,7 +3,7 @@
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
 </p>
 <p align="center">
-   URGENT: Read my statememt regarding Divinity in my links.
+   URGENT: Read my statement regarding Divinity in my links.
 </p>
 <p align="center">
    <img width="300" height="300" src="https://file.garden/au1asPGbEpA_fc0k/Untitled323_20261109235644.png" />
