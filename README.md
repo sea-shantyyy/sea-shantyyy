@@ -57,21 +57,21 @@
    <a href="https://github.com/pt-of-forsaken"> ᴘᴛ-ᴏꜰ-ꜰᴏʀꜱᴀᴋᴇɴ</a>
 
    ✧ **ꜱʜᴇᴅʟᴇᴛꜱᴋʏ/ᴛᴇʟᴀᴍᴏɴ ᴏꜰ ᴘᴏɴʏᴛᴏᴡɴ** ┆ 
-   <a href="link"> ᴅᴀɢɢᴇʀꜱᴛʀᴜᴄᴋᴍᴀɢᴇ,</a>
-   <a href="link"> ᴘᴛ-ᴏꜰ-ᴀᴡᴇꜱᴏᴍᴇɴᴇꜱꜱ</a>
+   <a href="https://github.com/daggerstruckmage"> ᴅᴀɢɢᴇʀꜱᴛʀᴜᴄᴋᴍᴀɢᴇ,</a>
+   <a href="https://github.com/pt-of-awesomeness"> ᴘᴛ-ᴏꜰ-ᴀᴡᴇꜱᴏᴍᴇɴᴇꜱꜱ</a>
    
    ✧ **ᴛᴇʟᴀᴍᴏɴ ᴏꜰ ᴘᴏɴʏᴛᴏᴡɴ** ┆
-   <a href="link"> ᴘᴏɴʏᴄʜᴇɪᴠᴇᴍᴇɴᴛꜱ,</a>
-   <a href="link"> ᴘᴏɴʏᴛᴏᴡɴ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ</a>
+   <a href="https://github.com/ponychievements"> ᴘᴏɴʏᴄʜᴇɪᴠᴇᴍᴇɴᴛꜱ,</a>
+   <a href="https://github.com/ponytown-nominations"> ᴘᴏɴʏᴛᴏᴡɴ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ</a>
    
    ✧ **ꜱᴏɴᴏꜰꜱᴇᴠᴇɴʟᴇꜱꜱ ᴏꜰ ᴘᴏɴʏ ᴛᴏᴡɴ** ┆ 
-   <a href="link"> ᴛʜᴇ-ᴛᴇᴍᴘɪꜱᴛ</a>
+   <a href="https://github.com/the-tempist"> ᴛʜᴇ-ᴛᴇᴍᴘɪꜱᴛ</a>
 
    ✧ **ꜱʜᴇᴅʟᴇᴛꜱᴋʏ/ᴛᴇʟᴀᴍᴏɴ'ꜱ ʙɪɢɢᴇꜱᴛ ꜰᴀɴ** ┆ 
-   <a href="link"> ꜰᴀɴꜱ-ᴛᴏᴡɴ</a>
+   <a href="https://github.com/fans-town"> ꜰᴀɴꜱ-ᴛᴏᴡɴ</a>
 
    ✧ **ꜱʜᴇᴅʟᴇᴛꜱᴋʏ ʜᴇᴀᴠʏ ꜰɪᴄᴛᴋɪɴ/ᴋɪɴ** ┆ 
-   <a href="link"> ᴘᴛ-ʜᴇᴀᴠʏꜰɪᴄᴛᴋɪɴ</a>
+   <a href="https://github.com/pt-heavyfictkin"> ᴘᴛ-ʜᴇᴀᴠʏꜰɪᴄᴛᴋɪɴ</a>
 
    ✧ **ɢɪʀʟ ᴀɴᴀᴄʜʀᴏɴɪꜱᴍ - ᴛʜᴇ ᴅʀᴇꜱᴅᴇɴ ᴅᴏʟʟꜱ** ┆ ᴄᴀɴᴛ ʀᴇᴍᴇᴍʙᴇʀ ᴛʜᴇ ᴀᴄᴄᴏᴜɴᴛ...
 
