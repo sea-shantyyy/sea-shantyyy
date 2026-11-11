@@ -48,7 +48,13 @@
 <div align= "center">
    -----------------------------------------
    
-   ✧ **ꜱʜᴇᴅʟᴇᴛꜱᴋʏ ᴏꜰ ᴘᴏɴʏᴛᴏᴡɴ** ┆ <a href="https://github.com/pt-fashion"> ᴘᴛ-ꜰᴀꜱʜɪᴏɴ</a>, <a href="https://github.com/pt-nominations"> ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ</a>, ᴄᴀꜱɪɴᴏᴛᴏᴡɴ, ꜰᴏʀꜱᴀᴋᴇɴᴛᴏᴡɴ, ᴄʜᴀʀᴀᴄᴛᴇʀꜱᴏꜰᴘᴛ, ᴘᴛ-ᴏꜰ-ꜰᴏʀꜱᴀᴋᴇɴ
+   ✧ **ꜱʜᴇᴅʟᴇᴛꜱᴋʏ ᴏꜰ ᴘᴏɴʏᴛᴏᴡɴ** ┆ 
+   <a href="https://github.com/pt-fashion"> ᴘᴛ-ꜰᴀꜱʜɪᴏɴ</a>, 
+   <a href="https://github.com/pt-nominations"> ᴘᴛ-ɴᴏᴍɪɴᴀᴛɪᴏɴꜱ</a>, 
+   <a href="https://github.com/casinotown"> ᴄᴀꜱɪɴᴏᴛᴏᴡɴ,</a>
+   <a href="https://github.com/forsakentown"> ꜰᴏʀꜱᴀᴋᴇɴᴛᴏᴡɴ,</a>
+   <a href="https://github.com/charactersofpt"> ᴄʜᴀʀᴀᴄᴛᴇʀꜱᴏꜰᴘᴛ,</a>
+   <a href="https://github.com/pt-of-forsaken"> ᴘᴛ-ᴏꜰ-ꜰᴏʀꜱᴀᴋᴇɴ</a>
 
    ✧ **ꜱʜᴇᴅʟᴇᴛꜱᴋʏ/ᴛᴇʟᴀᴍᴏɴ ᴏꜰ ᴘᴏɴʏᴛᴏᴡɴ** ┆ ᴅᴀɢɢᴇʀꜱᴛʀᴜᴄᴋᴍᴀɢᴇ, ᴘᴛ-ᴏꜰ-ᴀᴡᴇꜱᴏᴍᴇɴᴇꜱꜱ
    
