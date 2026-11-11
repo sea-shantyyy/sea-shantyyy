@@ -3,6 +3,9 @@
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
 </p>
 <p align="center">
+   <img width="300" height="300" src="https://file.garden/au1asPGbEpA_fc0k/Untitled323_20261109235644.png" />
+</p>
+<p align="center">
 𝐒𝐢𝐠𝐧 𝐦𝐲 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞 𝐚𝐧𝐝 𝐀𝐓𝐀𝐁𝐨𝐨𝐤!
 </p>
 <p align="center">
