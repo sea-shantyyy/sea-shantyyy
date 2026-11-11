@@ -1,6 +1,6 @@
 <img width="1640" height="180" src="https://files.catbox.moe/4i611g.jpg" />
 <p align="center">
-<img width="600" height="190" src="https://file.garden/au1asPGbEpA_fc0k/Untitled325_20261110122914.png" />
+<img width="500" height="120" src="https://file.garden/au1asPGbEpA_fc0k/Untitled327_20261110175005.png" />
 </p>
 <p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
