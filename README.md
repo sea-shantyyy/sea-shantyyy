@@ -26,6 +26,8 @@
   </summary>
 <div align= "center">
    -----------------------------------------
+   
+   DNI
 
    ✧ **Basic DNI** (Homophobes, transphobes, racists, ableists, etc.)
 
@@ -39,10 +41,29 @@
 
    ✧ Proshippers + Darkshippers
 
+   ✧ TransIDs/Radqueers
 
+   ---
+
+   IWC
+   
+   ✧ People under 15
+
+   ✧ People over 21
+
+   ✧ Ivan kins (sorry!)
+
+   ✧ People who sexualize Andrew and Slasher
+
+   ✧ Kin + yume doubles (Telamon and Kyoko kin doubles int!)
    
    ---
-   ✧
+   
+   BYI
+
+   ✧ WIP
+
+   ---
 </p>
 </details>
 
