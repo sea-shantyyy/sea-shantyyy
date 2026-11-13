@@ -47,21 +47,19 @@
 
    𝙸𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚠𝚒𝚝𝚑 𝚌𝚊𝚞𝚝𝚒𝚘𝚗
    
-   ✧ People under 15
+   ✧ ᴘᴇᴏᴘʟᴇ ᴜɴᴅᴇʀ 15 + ᴘᴇᴏᴘʟᴇ ᴏᴠᴇʀ 21
 
-   ✧ People over 21
+   ✧ ɪᴠᴀɴ ᴋɪɴꜱ
 
-   ✧ Ivan kins (sorry!)
+   ✧ ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ꜱᴇxᴜᴀʟɪᴢᴇ ᴀɴᴅʀᴇᴡ + ꜱʟᴀꜱʜᴇʀ 
 
-   ✧ People who sexualize Andrew and Slasher
-
-   ✧ Kin + yume doubles (Telamon and Kyoko kin doubles int!)
+   ✧ ᴋɪɴ + ʏᴜᴍᴇ ᴅᴏᴜʙʟᴇꜱ (ᴛᴇʟᴀᴍᴏɴ ᴀɴᴅ ᴋʏᴏᴋᴏ ᴋɪɴ ᴅᴏᴜʙʟᴇꜱ ɪɴᴛ!)
    
    ---
    
-   BYI
+   𝙱𝚎𝚏𝚘𝚛𝚎 𝚢𝚘𝚞 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝
 
-   ✧ WIP
+   ✧ ᴡɪᴘ
 
    ---
 </p>
