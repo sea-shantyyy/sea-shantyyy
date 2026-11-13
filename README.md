@@ -27,25 +27,25 @@
 <div align= "center">
    -----------------------------------------
    
-   DNI
+   𝙳𝚘 𝚗𝚘𝚝 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝
 
-   ✧ **Basic DNI** (Homophobes, transphobes, racists, ableists, etc.)
+   ✧ **ʙᴀꜱɪᴄ ᴅɴɪ** (ʜᴏᴍᴏᴘʜᴏʙᴇꜱ, ᴛʀᴀɴꜱᴘʜᴏʙᴇꜱ, ʀᴀᴄɪꜱᴛꜱ, ᴀʙʟᴇɪꜱᴛꜱ, ᴇᴛᴄ.)
 
-   ✧ Divinity (ACE0FHEART5, puppipilled, whatever he's trying to go by.)
+   ✧ ᴅɪᴠɪɴɪᴛʏ (ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5/ᴘᴜᴘᴘɪᴘɪʟʟᴇᴅ/ᴊᴇᴛᴛ/5ᴛᴀɴɴʏ/ᴡʜᴀᴛᴇᴠᴇʀ)
 
-   ✧ Boundary Breakers
+   ✧ ʙᴏᴜɴᴅᴀʀʏ ʙʀᴇᴀᴋᴇʀꜱ
 
-   ✧ Problematic People
+   ✧ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ᴘᴇᴏᴘʟᴇ
 
-   ✧ Spawnists + Telamonists
+   ✧ ꜱᴘᴀᴡɴɪꜱᴛꜱ + ᴛᴇʟᴀᴍᴏɴɪꜱᴛꜱ
 
-   ✧ Proshippers + Darkshippers
+   ✧ ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ + ᴅᴀʀᴋꜱʜɪᴘᴘᴇʀꜱ
 
-   ✧ TransIDs/Radqueers
+   ✧ ᴛʀᴀɴꜱɪᴅꜱ + ʀᴀᴅQᴜᴇᴇʀꜱ
 
    ---
 
-   IWC
+   𝙸𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚠𝚒𝚝𝚑 𝚌𝚊𝚞𝚝𝚒𝚘𝚗
    
    ✧ People under 15
 
