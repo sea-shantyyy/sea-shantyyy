@@ -17,6 +17,35 @@
 <p align="center">
    · · · ─ ·✶· ─ · · ·
 </p>
+
+<!--INFO-->
+<div align="center">
+<details>
+  <summary>
+    ┆𝙳𝙽𝙸, 𝙸𝚆𝙲 & 𝙱𝚈𝙸
+  </summary>
+<div align= "center">
+   -----------------------------------------
+
+   ✧ **Basic DNI** (Homophobes, transphobes, racists, ableists, etc.)
+
+   ✧ Divinity (ACE0FHEART5, puppipilled, whatever he's trying to go by.)
+
+   ✧ Boundary Breakers
+
+   ✧ Problematic People
+
+   ✧ Spawnists + Telamonists
+
+   ✧ Proshippers + Darkshippers
+
+
+   
+   ---
+   ✧
+</p>
+</details>
+
 <!--INFO-->
 <div align="center">
 <details>
@@ -137,24 +166,6 @@
 </p>
 </details>
 
-<!--INFO-->
-<div align="center">
-<details>
-  <summary>
-    ┆𝙵𝚊𝚗𝚍𝚘𝚖𝚜, 𝙸𝚗𝚝𝚎𝚛𝚎𝚜𝚝𝚜, 𝚎𝚝𝚌.
-  </summary>
-<div align= "center">
-   -----------------------------------------
-   
-   ✧ **𝐅𝐀𝐍𝐃𝐎𝐌𝐒**: ꜰᴏʀꜱᴀᴋᴇɴ, ʀᴏʙʟᴏx ᴀᴅᴍɪɴꜱ, ʙᴀᴅ ᴛʜɪɴɢꜱ, ᴇɴɴᴇᴀʜᴜᴍᴀɴꜱ, ʙʟᴏᴄᴋᴛᴀʟᴇꜱ, ᴀʀᴇɢᴇᴄᴛ
-
-   ✧ **𝐈𝐍𝐓𝐄𝐑𝐄𝐒𝐓𝐒**: ᴀɴᴀᴛᴏᴍʏ, ʀᴏʟʟᴇʀ ᴄᴏᴀꜱᴛᴇʀ ʜɪꜱᴛᴏʀʏ ᴀɴᴅ ᴅᴇꜱɪɢɴ, ᴛʏᴘᴏʟᴏɢʏ, ᴍᴜꜱɪᴄ, ʙɪʀᴅꜱ, ꜰᴀꜱʜɪᴏɴ
-
-   ✧ **𝐇𝐎𝐁𝐁𝐈𝐄𝐒**: ᴠɪᴏʟɪɴ, ᴡʀɪᴛɪɴɢ, ᴅʀᴀᴡɪɴɢ, ɪᴄᴇ ꜱᴋᴀᴛɪɴɢ, ᴘʜᴏᴛᴏɢʀᴀᴘʜʏ, ᴍᴀᴋɪɴɢ ᴘʟᴀʏʟɪꜱᴛꜱ
-
-   ---
-</p>
-</details>
 <p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
 </p>
