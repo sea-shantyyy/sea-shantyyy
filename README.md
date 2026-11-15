@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-   <img width="335" height="340" src="https://file.garden/au1asPGbEpA_fc0k/Tumblr_l_124551153790661.jpg" />
+   <img width="335" height="340" src="https://file.garden/au1asPGbEpA_fc0k/Untitled342_20261114214341.png" />
 </p>
 
 
