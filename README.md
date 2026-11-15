@@ -14,52 +14,6 @@
    · · · ─ ·✶· ─ · · ·
 </p>
 
-<!--INFO-->
-<div align="center">
-<details>
-  <summary>
-    ┆𝙳𝙽𝙸, 𝙸𝚆𝙲 & 𝙱𝚈𝙸
-  </summary>
-<div align= "center">
-   -----------------------------------------
-   
-   𝙳𝚘 𝚗𝚘𝚝 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝
-
-   ✧ **ʙᴀꜱɪᴄ ᴅɴɪ** (ʜᴏᴍᴏᴘʜᴏʙᴇꜱ, ᴛʀᴀɴꜱᴘʜᴏʙᴇꜱ, ʀᴀᴄɪꜱᴛꜱ, ᴀʙʟᴇɪꜱᴛꜱ, ᴇᴛᴄ.)
-
-   ✧ ᴅɪᴠɪɴɪᴛʏ (ᴀᴄᴇ0ꜰʜᴇᴀʀᴛ5/ᴘᴜᴘᴘɪᴘɪʟʟᴇᴅ/ᴊᴇᴛᴛ/5ᴛᴀɴɴʏ/ᴡʜᴀᴛᴇᴠᴇʀ)
-
-   ✧ ʙᴏᴜɴᴅᴀʀʏ ʙʀᴇᴀᴋᴇʀꜱ
-
-   ✧ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ ᴘᴇᴏᴘʟᴇ
-
-   ✧ ꜱᴘᴀᴡɴɪꜱᴛꜱ + ᴛᴇʟᴀᴍᴏɴɪꜱᴛꜱ
-
-   ✧ ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ + ᴅᴀʀᴋꜱʜɪᴘᴘᴇʀꜱ
-
-   ✧ ᴛʀᴀɴꜱɪᴅꜱ + ʀᴀᴅQᴜᴇᴇʀꜱ
-
-   ---
-
-   𝙸𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚠𝚒𝚝𝚑 𝚌𝚊𝚞𝚝𝚒𝚘𝚗
-   
-   ✧ ᴘᴇᴏᴘʟᴇ ᴜɴᴅᴇʀ 15 + ᴘᴇᴏᴘʟᴇ ᴏᴠᴇʀ 21
-
-   ✧ ɪᴠᴀɴ ᴋɪɴꜱ
-
-   ✧ ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ꜱᴇxᴜᴀʟɪᴢᴇ ᴀɴᴅʀᴇᴡ + ꜱʟᴀꜱʜᴇʀ 
-
-   ✧ ᴋɪɴ + ʏᴜᴍᴇ ᴅᴏᴜʙʟᴇꜱ (ᴛᴇʟᴀᴍᴏɴ ᴀɴᴅ ᴋʏᴏᴋᴏ ᴋɪɴ ᴅᴏᴜʙʟᴇꜱ ɪɴᴛ!)
-   
-   ---
-   
-   𝙱𝚎𝚏𝚘𝚛𝚎 𝚢𝚘𝚞 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝
-
-   ✧ ᴡɪᴘ
-
-   ---
-</p>
-</details>
 
 <!--INFO-->
 <div align="center">
@@ -181,12 +135,6 @@
 
 <p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
-</p>
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31aw5storlsfd4lb6yqhebe4nkli&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=e67a7a&bar_color_cover=false">
-  </a>
-</p>
 </p>
 <p align="center">
    <img width="1400" height="100" src="https://file.garden/au1asPGbEpA_fc0k/Tumblr_l_1146075106487796.jpg" />
