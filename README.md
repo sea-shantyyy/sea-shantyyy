@@ -23,7 +23,7 @@
 <div align="center">
 <details>
   <summary>
-    ┆𝙸𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗 𝙸𝚗𝚏𝚘 ⛄️
+    ┆𝙸𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚘𝚗 𝙸𝚗𝚏𝚘
   </summary>
 <div align= "center">
    -----------------------------------------
@@ -50,7 +50,7 @@
 <div align="center">
 <details>
   <summary>
-    ┆𝚃𝚒𝚝𝚕𝚎𝚜 𝚊𝚗𝚍 𝙰𝚠𝚊𝚛𝚍𝚜 🦌
+    ┆𝚃𝚒𝚝𝚕𝚎𝚜 𝚊𝚗𝚍 𝙰𝚠𝚊𝚛𝚍𝚜
   </summary>
 <div align= "center">
    -----------------------------------------
@@ -93,7 +93,7 @@
 <div align="center">
 <details>
   <summary>
-    ┆𝙼𝚢 𝙺𝚒𝚗𝚜 𝚊𝚗𝚍 𝚈𝚞𝚖𝚎𝚜 🎁
+    ┆𝙼𝚢 𝙺𝚒𝚗𝚜 𝚊𝚗𝚍 𝚈𝚞𝚖𝚎𝚜
   </summary>
 <div align= "center">
    -----------------------------------------
