@@ -6,13 +6,7 @@
    URGENT: Read my statement regarding Divinity in my links.
 </p>
 
-<p align="center">
-   Remaking this soon
-</p>
 
-<p align="center">
-𝐒𝐢𝐠𝐧 𝐦𝐲 𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞 𝐚𝐧𝐝 𝐀𝐓𝐀𝐁𝐨𝐨𝐤!
-</p>
 <p align="center">
    <a href="https://hits.sh/github.com/sea-shantyyy/"><img alt="Hits" src="https://hits.sh/github.com/sea-shantyyy.svg?label=%E1%91%ADEO%E1%91%AD%E1%92%AAE%20%20%E1%91%AD%E1%97%AF%E1%91%8EE%E1%97%AA&color=f16262&labelColor=ffeb96"/></a>
 </p>
