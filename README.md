@@ -7,10 +7,10 @@
 </p>
 
 <p align="center">
-  <a href="https://github.com/sea-shantyyy">
+  <a href="https://shanletskty.straw.page/">
     <img width="160" height="40" src="https://file.garden/au1asPGbEpA_fc0k/Untitled342_20261114231101.png"/>
   </a>
-     <a href="https://github.com/sea-shantyyy">
+     <a href="https://sea-shanty.atabook.org/">
     <img width="140" height="45" src="https://file.garden/au1asPGbEpA_fc0k/Untitled342_20261114231112.png"/>
   </a>
 </p>
