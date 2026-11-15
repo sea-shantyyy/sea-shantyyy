@@ -6,6 +6,10 @@
    URGENT: Read my statement regarding Divinity in my links.
 </p>
 
+<p align="center">
+   <img width="335" height="340" src="https://file.garden/au1asPGbEpA_fc0k/Untitled342_20261114205501.png" />
+</p>
+
 
 <p align="center">
    <a href="https://hits.sh/github.com/sea-shantyyy/"><img alt="Hits" src="https://hits.sh/github.com/sea-shantyyy.svg?label=%E1%91%ADEO%E1%91%AD%E1%92%AAE%20%20%E1%91%AD%E1%97%AF%E1%91%8EE%E1%97%AA&color=f16262&labelColor=ffeb96"/></a>
