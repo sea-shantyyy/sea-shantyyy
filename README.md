@@ -3,7 +3,7 @@
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
 </p>
 <p align="center">
-   Updated statement in links
+   Updated statement + added log in links; please read it!
 </p>
 
 <p align="center">
