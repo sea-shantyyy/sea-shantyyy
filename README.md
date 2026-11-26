@@ -3,7 +3,7 @@
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
 </p>
 <p align="center">
-   Updated statement (again) + added log in links; please read it!
+   Added gunslol page, Divi DNI on ALL platforms. Moved update log to statement to make room.
 </p>
 
 <p align="center">
