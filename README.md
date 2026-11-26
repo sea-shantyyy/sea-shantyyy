@@ -3,7 +3,7 @@
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
 </p>
 <p align="center">
-   Added gunslol page.ᐟ
+   Added gunslol + updates pronouns.ᐟ
 </p>
 
 <p align="center">
