@@ -3,7 +3,7 @@
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
 </p>
 <p align="center">
-   Added gunslol + updates pronounscc.ᐟ
+   Please block puppipilled & housepilled. Do not click on ANY links on his profile, do not try to talk to him. He is a proshipper sh*tacon that encourages self harm and posts gore. Do NOT interact with him and stay safe.
 </p>
 
 <p align="center">
